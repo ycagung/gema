@@ -69,7 +69,7 @@ Tapi yang paling menggangguku adalah kata-katanya ketika pulang sekolah, sebelum
 
 "Kak Jenna, Gem. Kamu tahu dari mana?" tanyaku balik sambil mengangkat alis.
 
-"Silakan panggil Kevin dengan sebutan 'Kak' tanpa ingin muntah." sanggah gema ketus. *Betul juga,* pikirku. "Tidak penting aku tahu dari mana. Yang penting adalah nanti Anya akan datang bersama Kevin, aku yakin itu. Tugasmu adalah berbincang dengan mereka berdua. Anya akan memakai kalung berwarna hitam-"
+"Silakan panggil 'Kak Kevin' tanpa ingin muntah." sanggah gema ketus. *Betul juga,* pikirku. "Tidak penting aku tahu dari mana. Yang penting adalah nanti Anya akan datang bersama Kevin, aku yakin itu. Tugasmu adalah berbincang dengan mereka berdua. Anya akan memakai kalung berwarna hitam-"
 
 "Hah? Anya pakai kalung? Sejak kapan?" potongku tergesa. Aku tahu betul Anya tidak suka pakai perhiasan.
 
@@ -113,4 +113,4 @@ Sekitar tiga puluh menit kemudian, aku turun dari mobilku di area *drop-off* dep
 
 "Maaf, kak. Yang ini milikku," ujarku sambil mengedipkan sebelah mata. "Tapi dia sedang ada-"
 
-"Kak Jenna! Kartika!" sapa seseorang dari belakangku, suaranya sangat kukenal. Dan benarlah ketika aku berbalik badan, terlihat Anya mengenakan gaun sederhana berwarna biru dan Kevin dengan kemeja abu-abu menggenggam tangannya. Terlihat jelas kalung hitam dengan liontin putih berbentuk merpati tergantung di lehernya. *Jadi itu maksud Gema.*
+"Kak Jenna! Tika!" sapa seseorang dari belakangku, suaranya sangat kukenal. Dan benarlah ketika aku berbalik badan, terlihat Anya mengenakan gaun sederhana berwarna biru dan Kevin dengan kemeja abu-abu menggenggam tangannya. Terlihat jelas kalung hitam dengan liontin putih berbentuk merpati tergantung di lehernya. *Jadi itu maksud Gema.*

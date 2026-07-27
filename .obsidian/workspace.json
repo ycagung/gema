@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Story/Chapter 10.md",
+                "file": "Story/Chapter 12.md",
                 "mode": "source",
-                "source": false
+                "source": true
               },
               "icon": "lucide-file",
-              "title": "Chapter 10"
+              "title": "Chapter 12"
             }
           }
         ]
@@ -182,19 +182,20 @@
   },
   "active": "aeff43ebed2eb702",
   "lastOpenFiles": [
-    "Story/Chapter 10.5.md",
-    "Story/Chapter 10.md",
-    "Story/Chapter 11.md",
     "Story/Chapter 9.md",
-    "Story/Chapter 8.md",
-    "Story/Chapter 5.5.md",
+    "Story/Chapter 12.md",
+    "Story/Chapter 2.md",
+    "Story/Chapter 11.md",
+    "Story/Chapter 10.md",
     "Story/Chapter 6.md",
     "Story/Chapter 7.md",
-    "Untitled.md",
+    "Story/Chapter 8.md",
     "Story/Chapter 5.md",
+    "Story/Chapter 10.5.md",
+    "Story/Chapter 5.5.md",
+    "Untitled.md",
     "Story/Chapter 4.md",
     "Story/Chapter 3.md",
-    "Story/Chapter 2.md",
     "Story/Chapter 1.md",
     "Characters/Gema Cahaya.md",
     "Story/Plot.md",
