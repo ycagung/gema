@@ -1,7 +1,7 @@
 ---
 tags:
   - chapter
-title: Aku Ingin Mati Saja
+title: Satu tambah satu sama dengan nol
 ---
 # Chapter 1 - Satu Tambah Satu Sama Dengan Nol
 
@@ -33,6 +33,8 @@ Akhirnya panggilan itu kututup dengan kalimat "baik pak, akan kami tinjau kembal
 
 Omelan Andrea pun berlanjut, tak sekalipun dia mendengarkan penjelasanku bahwa aku tidak ingin memfasilitasi penipuan terhadap klienku, klien kita. Apalagi penipuan itu dilakukan oleh karyawannya sendiri. Akhirnya aku memilih untuk diam, seperti biasa.
 
+Ini bukan kali pertama hal semacam ini terjadi, dan aku yakin tidak akan jadi yang terakhir. Aku masih tidak paham jalan pikir Andrea. Tidakkah dia melihat kalau klien semacam ini tidak pernah bertahan lama? Apa yang ada di pikirannya itu hanya uang instan tidak peduli dari mana datangnya? Tapi apalah dayaku.
+
 ---
 
 Hidupku di kantor adalah putaran setengah abadi di mana aku menghadapi hujan komplain dari klien, lalu menghadapi hujan komplain dari atasanku karena egonya basah kuyup dihujani komplain oleh klien. Semua itu dalam kurun waktu dua jam dan akan berulang minimal empat kali sehari, tujuh hari seminggu, tiga pu... ah, sudahlah. 
@@ -47,6 +49,8 @@ Jalanan becek sedikit membasahi sepatu dan kaus kakiku. Kurang satu kilometer la
 
 Pertanyaan terakhir itu membekas di benakku, membuat pandanganku kosong. *Pilihan mana yang akan kupilih?*
 
-Kakiku yang basah terus berjalan mengikuti ke mana arah trotoar menuju. Tanpa kusadari, trotoar itu sudah tidak ada. Di bawah kakiku sekarang hanya ada aspal. Dalam sepersekian detik, cahaya terang datang dari arah kananku, suara klakson melengking tajam, lalu ada teriakan dari belakangku. Hal berikutnya yang kutahu adalah aku bisa melihat leherku sendiri, bersimbah darah.
+Kakiku yang basah terus berjalan mengikuti ke mana arah trotoar menuju. Tanpa kusadari, trotoar itu sudah tidak ada lagi. Di bawah kakiku sekarang hanya ada aspal. Dalam sepersekian detik, cahaya terang datang dari arah kananku, suara klakson melengking tajam, lalu ada teriakan dari belakangku. Hal berikutnya yang kutahu adalah aku bisa melihat leherku sendiri, bersimbah darah. 
+
+Katanya kepala yang terputus dari badan akan tetap hidup selama lima sampai sepuluh detik. Sepertinya aku bisa memastikan kalau itu benar-benar fakta. Kukira akan terasa mengerikan, tapi tidak juga. Tidak ada rasa sakit, tidak ada rasa kaget. Tidak ada... rasa sama sekali. Hanya ada dingin aspal dan aliran dari dari leherku yang sudah mengenai pipi.
 
 *Ah, sungguh akhir yang jauh lebih mengenaskan dari hidupku yang berantakan ini. Kalau aku punya leher mungkin aku akan tertawa. Tapi setidaknya aku sudah punya jawaban atas pertanyaan terakhir tadi. Aku akan...*

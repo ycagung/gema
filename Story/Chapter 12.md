@@ -75,7 +75,7 @@ Matanya melirik ke seberang ruangan di mana Gema sedang berdiskusi dengan tiga l
 
 "Sur, ini bagus sekali. Bagaimana menurutmu?" ujar laki-laki satu lagi ke rekan sebelahnya.
 
-"Dengan sumber daya kita sekarang. Mungkin akan butuh waktu enam bulan," jawab laki-laki yang dipanggil "Sur" itu.
+"Dengan sumber daya kita sekarang, mungkin akan butuh waktu enam bulan untuk sampai ke *prototype* pertama," jawab laki-laki yang dipanggil "Sur" itu.
 
 "Betul, kak. Perkiraanku juga seperti itu," ujar Gema. "Sekarang kita ke Pak Andrew," tambahnya sebelum berdiri dan menoleh ke aku dan Kak Luna. "Ayo, Kak Luna dan Tika. Kita serbu Pak Andrew."
 
@@ -93,7 +93,7 @@ Satu jam berlalu diisi dengan banyak pertanyaan Pak Andrew di bagian teknis, wak
 
 "Kami bersedia menambah jam kerja, pak," ujar mereka hampir bersamaan.
 
-"Lalu siapa yang akan membayar *overtime* kalian?" tanya Pak Andrew sambil mengusap matanya. "Ide ini bagus, sangat bagus malah. Tapi kita tidak punya dana yang cukup untuk enam bulan pengembangan oleh kalian bertiga. Luna, kamu ikut juga?"
+"Lalu siapa yang akan membayar *overtime* kalian?" tanya Pak Andrew sambil mengusap matanya. "Ide ini bagus, sangat bagus malah. Tapi kita tidak punya dana yang cukup untuk enam bulan pengembangan oleh kalian bertiga. Apalagi itu baru ke *prototype* pertama. Luna, kamu ikut juga?"
 
 "Tentu saja, pak. Kasihan gema jika harus dikeroyok Otis dan Hans bersamaan," jawab Kak Luna dengan tersenyum.
 
@@ -107,7 +107,7 @@ Satu jam berlalu diisi dengan banyak pertanyaan Pak Andrew di bagian teknis, wak
 
 Aku tersenyum, lalu mengambil nafas dan memulai, "Terima kasih karena mengijinkan saya ikut di sini, Pak Andrew. Sebelumnya saya ingin menjelaskan sedikit tentang latar belakang saya. Di keluarga saya ada tradisi di mana anak-anak yang beranjak dewasa untuk mencari dan memulai usaha mereka sendiri. Kakak-kakak saya juga sudah melalui hal yang sama beberapa tahun lalu. Sekarang giliran saya. Tadi siang di sekolah, saya dan Gema menemukan ide ini. Lalu Gema dan kakak-kakak yang lain langsung membuat perencanaan ini dengan sangat bagus. Saya di sini ingin menawarkan peran saya sebagai *investor*, pak."
 
-Layar berubah menampilkan proyeksi biaya yang dibutuhkan untuk pengembangan. Total sekitar tiga ratus lima puluh juta terpampang dengan tulisan tebal.
+Layar berubah menampilkan proyeksi biaya yang dibutuhkan untuk pengembangan awal. Total sekitar tiga ratus lima puluh juta terpampang dengan tulisan tebal.
 
 "Kamu mau membiayai jumlah ini? Kamu punya uang sebanyak ini?"
 
@@ -122,3 +122,14 @@ Pak Andrew tidak menunjukkan ekspresi apapun. Lalu dia menoleh pada Gema. "Lalu 
 Pak Andrew geleng-geleng kepala. "Kalian anak-anak gila."
 
 "Tiga sudut sudah terpenuhi, pak. Perencanaan, pengembang, dan pendanaan. Bagaimana menurut bapak?" tanya Gema.
+
+---
+
+**Gema**
+---
+
+"Tidak. Ibu tidak mengijinkan," jawab ibu tegas ketika aku meminta ijin untuk pulang kerja lebih malam.
+
+"Tapi, bu-"
+
+"Tidak. Kalau kamu tidak mau menuruti kata ibu, tidak usah bekerja sekalian."

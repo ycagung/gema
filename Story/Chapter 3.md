@@ -106,3 +106,4 @@ Aku tersenyum pada Hendra dan menganggukkan kepalaku tanpa menjawab apapun. Lalu
 Aku berdiri di balkon lantai tiga sekolahku, di mana aku bisa melihat dengan jelas semua yang terjadi di depan sekolah. Dan benar dugaanku, Anya dan Kevin ada di warung bakso depan sekolah. Warung yang tidak pernah ramai karena baksonya tidak enak. Warung yang hanya akan didatangi oleh anak laki-laki yang ingin mengajak pacarnya berduaan. Aku bahkan bisa melihat raut wajah Anya yang tidak nyaman karena tempatnya kumuh. 
 
 *Tak apa, Anya. Bertahanlah sebentar. Akan kuulang cerita menyedihkan ini untuk menghapus bagian buruk itu dari hidupmu.* 
+
