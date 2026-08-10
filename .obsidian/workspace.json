@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Story/Chapter 7.md",
+                "file": "Story/Chapter 18.md",
                 "mode": "source",
-                "source": true
+                "source": false
               },
               "icon": "lucide-file",
-              "title": "Chapter 7"
+              "title": "Chapter 18"
             }
           }
         ]
@@ -184,6 +184,7 @@
   },
   "active": "aeff43ebed2eb702",
   "lastOpenFiles": [
+    "Story/Chapter 7.md",
     "Story/Chapter 6.md",
     "Story/Chapter 18.md",
     "Story/Chapter 17.md",
@@ -198,7 +199,6 @@
     "Story/Chapter 2.md",
     "Story/Chapter 10.md",
     "Story/Chapter 11.md",
-    "Story/Chapter 7.md",
     "Story/Chapter 9.md",
     "Story/Chapter 8.md",
     "Story/Chapter 5.5.md",

@@ -7,9 +7,9 @@ title:
 
 ---
 
-**Christie**
+**Anya**
 ---
-Kami berlima berkumpul membentuk lingkaran. Bu Karin, Aku, Galih, Anya, dan senjata pamungkas kami, Gema. Bu Karin lalu membagikan kartu-kartu peserta untuk kami masing-masing. 
+Kami berlima berkumpul membentuk lingkaran. Bu Karin, Kak Christie, Kak Galih, Aku, dan Gema. Bu Karin lalu membagikan kartu-kartu peserta untuk kami masing-masing. 
 
 "Kalian sudah berlatih dengan baik," ujar Bu Karin mengawali *pep talk*-nya. "Tapi jangan lengah. Musuh kalian bukan soal olimpiade, tapi kewaspadaan kalian sendiri. Sekarang bawa pulang piala itu."
 
@@ -17,8 +17,77 @@ Kami berlima berkumpul membentuk lingkaran. Bu Karin, Aku, Galih, Anya, dan senj
 
 ---
 
-Empat puluh lima menit berlalu semenjak penghitung waktu itu berjalan. Masih ada sisa waktu lebih dari satu jam. Setidaknya aku sudah menyelesaikan lima puluh persen soal yang ada di hadapanku. Bagaimana dengan yang lain, ya?
+"Aku dan Galih ada di ruangan berbeda. Kalian berdua semangat, ya," ujar Kak Christie ketika kami berempat sudah sampai di depan ruangan pertama.
 
-Mataku lalu berputar memindai ruangan tepat di mana Galih, Anya, dan Gema duduk. Galih terlihat sangat berkonsentrasi, dia lebih mirip orang yang sedang angkat beban daripada ikut olimpiade matematika. Anya pun hampir sama, hanya saja tanpa urat kepala menonjol seperti Galih. Lalu mataku beralih pada Gema yang sedang... Menguap? Ah, monster satu ini. Jadi soal-soal ini membosankan, ya, baginya? 
+"Khawatirkan diri kalian sendiri saja dulu, Aku dan Anya akan baik-baik saja," jawab Gema, matanya melirik padaku sekilas sambil setengah tersenyum. "Oh, ya, jangan lupa taruhan kita. Yang nilainya paling rendah akan mentraktir makan siang di kantin besok."
 
-Sebetulnya tidak mengherankan mengingat selama dua minggu latihan kemarin lebih banyak Gema yang memimpin daripada Bu Karin. Aku juga tidak tahu bagaimana caranya dia paham semua konsep-konsep sulit itu. Lalu di mana dia waktu kelas tujuh? Harusnya, kan, dia juara kelas kalau sepintar itu, bukan Kartika.
+"Berarti kemungkinannya hanya satu dari kami bertiga, kan? Dasar licik. Bilang saja kalau mau makan siang gratis," cibir Christie. Dan memang benar, tidak mungkin Gema yang akan mentraktir makan siang besok. Secara praktis dia adalah guru latihan kami semua dua minggu terakhir. Alam bawah sadarku lalu menghitung berapa sisa uang jajanku minggu ini. 
+
+"Ayo masuk, daripada kita terlambat. Aku perlu menyiapkan mentalku dulu," pintaku ke Gema sambil menyentuh sedikit lengannya. 
+
+"Wow, Gema. Kartika tidak cukup? Anya juga? Kamu tidak takut dengan Kevin?" ledek Kak Christie. Kak Galih yang mendengar itu spontan langsung menyenggol lengan Kak Christie.
+
+Wajahku memerah, kutarik tanganku dari lengan Gema. "Kakak! Hush!" teriakku ke Kak Christie.
+
+"Kak, mulutmu besar juga," kata Gema. "Hati-hati."
+
+Gema bergegas masuk dengan wajah sedikit kesal. Aku mengangguk kecil pada Kak Christie dan Kak Galih lalu mengikuti Gema.
+
+Ruangan itu sudah terisi separuh oleh peserta-peserta olimpiade lain. 
+
+"Kamu tak apa?" tanya Gema tiba-tiba.
+
+Aku mengangkat alis dan menatapnya balik. "Aku? Aku kenapa?"
+
+"Ah, baguslah," ujarnya. Wajahnya kembali tersenyum, sepertinya dia sudah tidak kesal dengan Kak Christie. Tunggu, kenapa pula dia harus kesal dengan Kak Christie? Dia kan tidak melakukan apa-apa? Ah, sudahlah, tidak perlu memikirkan itu. "Kamu masih ingat semua yang kuajarkan dua minggu kemarin, Anya?"
+
+Aku mengangguk. "Tidak semua, tapi sebagian besar masih kuingat. Aku juga latihan sendiri di rumah dari soal-soalmu."
+
+"Bagus. Kalau kamu setidaknya mengingat delapan puluh persen yang kuajarkan, kamu akan juara dua."
+
+Aku terheran. Lalu tiba-tiba aku tidak bisa menahan tawaku. "Hahaha, kamu bercanda, kan? Mana mungkin aku bisa langsung jadi juara dua hanya dengan itu?"
+
+---
+
+"Juara dua diraih oleh... ANYA LARASATI!" seru sang pembawa acara. Aku yang sedang melamun di sebelah Gema yang juga sedang melamun langsung tersentak. 
+
+Gema melirikku dengan seringai usilnya. Laki-laki aneh ini sekarang juga sudah jadi peramal rupanya? Bagaimana caranya dia memperkirakan dengan tepat kalau aku akan juara dua?
+
+"Apa kubilang?" katanya menyengir lebar.
+
+"Anyaa!! Selamat!" Kak Christie memelukku dari belakang. Diikuti Kak Galih yang menyalamiku. 
+
+Aku bingung, tidak tahu harus tersenyum atau heran. Aku tidak pernah memenangkan hal semacam ini seumur hidupku, lalu sekarang hanya dengan dua minggu latihan secara ajaib aku juara dua olimpiade matematika se-Surabaya. Mataku kembali jatuh pada Gema. Kalau tidak ada dia, aku tidak akan mungkin meraih ini. Tapi...
+
+"Tapi bagaimana kamu tahu aku akan juara dua?" tanyaku.
+
+"Karena aku juara satunya," jawabnya santai di tengah riuhnya ruangan.
+
+Belum sempat aku mencerna jawabannya, sang pembaca acara mengumumkan pemenang olimpiade.
+
+"Juara satu dengan keunggulan poin yang luar biasa tinggi diraih oleh... GEMA CAHAYA!"
+
+Layar di panggung menampilkan grafik perolehan poin dari para juara. Mulai dari juara harapan dua dengan 221 poin. Kak Christie meraih 235 poin dan menjadi juara harapan satu. Juara 3 meraih 275 poin dan aku meraih 297 sebagai juara dua. Sedangkan Gema... 400 poin. Hasil sempurna. Seisi ruangan seketika senyap selama sepersekian detik karena hasil tidak masuk akal itu. Lalu gemuruh sorakan dan tepuk tangan menggetarkan dinding-dinding putih ruangan. Semuanya merayakan kemenangan mutlak seorang Gema Cahaya. 
+
+"Kepada para juara, dipersilakan naik ke atas panggung untuk menerima piala dari Pak Walikota."
+
+Satu per satu kami berlima naik dan menerima piala kami masing-masing. Gema yang memegang piala terbesar, mendapatkannya terakhir diiringi tepuk tangan meriah. Dia mengucapkan terima kasih lalu mengambil satu langkah maju. Dengan sekali hentakan, tangan kanannya mengangkat piala itu tinggi-tinggi.
+
+---
+
+**Kartika**
+---
+Ruangan yang penuh dengan siswa-siswi SMP se-Surabaya ini riuh rendah dengan sorakan dan tepuk tangan tepat ketika aku memasukinya. Sepertinya Gema sudah menang. Lalu layar di panggung menampilkan rekapitulasi perolehan poin peserta. Ah, Gema menang telak. Aku lalu bersandar mengambil tempat di ujung ruangan.
+
+Aku buru-buru meminta Pak Joko untuk menuju kemari sepulang sekolah tadi. Seharian lidahku terasa pahit karena mengingat tadi pagi aku kesal pada Gema hanya karena hal sepele. Betapa bodohnya.
+
+"Menjemput pacarmu?" tanya seseorang yang tiba-tiba bersandar juga di dinding, mengambil tempat di sebelahku. Ternyata Kevin. Sepertinya dia juga buru-buru kemari, takut Anya-nya diambil Gema.
+
+"Tentu saja, aku gadis yang perhatian," jawabku ketus.
+
+Gema, Anya, dan Kak Christie beranjak dari bangku mereka dan naik ke atas panggung. Senyum banggaku tidak bisa kutahan ketika dia menerima piala besar itu. Lalu ketika dia maju selangkah dan mengangkat piala itu tinggi-tinggi...
+
+"Gemaa!!" sorakku keras-keras seperti seorang penggemar menyoraki artis favoritnya.
+
+---
+
