@@ -71,6 +71,14 @@ Layar di panggung menampilkan grafik perolehan poin dari para juara. Mulai dari 
 
 "Kepada para juara, dipersilakan naik ke atas panggung untuk menerima piala dari Pak Walikota."
 
+Aku hendak berdiri sebelum tanganku ditahan oleh Gema.
+
+"Anya, kemari sebentar," ujarnya. Aku mendekatkan telingaku padanya. "Ketika turun panggung nanti, jangan sekali-kali menoleh padaku lagi. Aku tahu kamu tahu maksudku. Ingat pesanku di mobil tadi pagi. Sampai ketemu lagi di ujung jalan, Anya. Aku percaya padamu, jadi kamu harus percaya pada dirimu sendiri."
+
+Setelah membisikkan itu dia langsung berdiri dan berjalan menuju panggung, meninggalkanku kebingungan. Aku tahu maksud pesan pertamanya tadi, meskipun aku tidak tahu kenapa dia harus peduli. Tapi pesan terakhirnya yang membuatku berpikir. Apa maksudnya "ujung jalan"?
+
+"Ayo, Anya, kamu sudah ditunggu di panggung," ujar Bu Karin dari belakangku. Aku mengangguk, mengesampingkan kebingunganku dan bangkit berdiri.
+
 Satu per satu kami berlima naik dan menerima piala kami masing-masing. Gema yang memegang piala terbesar, mendapatkannya terakhir diiringi tepuk tangan meriah. Dia mengucapkan terima kasih lalu mengambil satu langkah maju. Dengan sekali hentakan, tangan kanannya mengangkat piala itu tinggi-tinggi.
 
 ---
@@ -79,7 +87,7 @@ Satu per satu kami berlima naik dan menerima piala kami masing-masing. Gema yang
 ---
 Ruangan yang penuh dengan siswa-siswi SMP se-Surabaya ini riuh rendah dengan sorakan dan tepuk tangan tepat ketika aku memasukinya. Sepertinya Gema sudah menang. Lalu layar di panggung menampilkan rekapitulasi perolehan poin peserta. Ah, Gema menang telak. Aku lalu bersandar mengambil tempat di ujung ruangan.
 
-Aku buru-buru meminta Pak Joko untuk menuju kemari sepulang sekolah tadi. Seharian lidahku terasa pahit karena mengingat tadi pagi aku kesal pada Gema hanya karena hal sepele. Betapa bodohnya.
+Aku buru-buru meminta Pak Joko untuk menuju kemari sepulang sekolah tadi, sampai aku harus berganti baju di toilet sekolah. Seharian lidahku terasa pahit mengingat tadi pagi aku kesal pada Gema hanya karena hal sepele. Betapa bodohnya.
 
 "Menjemput pacarmu?" tanya seseorang yang tiba-tiba bersandar juga di dinding, mengambil tempat di sebelahku. Ternyata Kevin. Sepertinya dia juga buru-buru kemari, takut Anya-nya diambil Gema.
 
@@ -91,3 +99,52 @@ Gema, Anya, dan Kak Christie beranjak dari bangku mereka dan naik ke atas panggu
 
 ---
 
+"Bukannya tadi pagi kamu marah denganku?" tanya Gema membuka pembicaraan. Kami berdua sudah di dalam mobilku baru saja keluar dari parkiran balai kota.
+
+"Hmm? *I don't know what you're talking about,*" jawabku sambil bersiul memalingkan wajah.
+
+Gema tidak menjawab. Ketika kutolehkan wajahku, dia tampak sedang tenggelam dalam lamunannya sambil melihat keluar mobil. Saat-saat seperti ini membuatku sadar kalau dia tidak terlihat seperti anak seumuranku. Dia seperti menanggung beban seumur hidup. Aku hanya pernah melihat ayahku memasang wajah yang sama.
+
+"Sedang memikirkan apa?" tanyaku takbisa kutahan walaupun sebenarnya aku tidak ingin mengganggunya. Dia tidak memalingkan wajahnya dari jendela.
+
+"Anya tadi mengajakku bicara duluan," jawabnya singkat. "Dia masih tidak bisa mengingat aku sepenuhnya, tapi setidaknya aku ada di depan matanya."
+
+"*Really?* Berarti ini berita bagus, dong. Kenapa wajahmu murung?"
+
+"Aku tidak murung, Tika. Aku hanya sedang berpikir bagaimana aku harus menangani Kevin," jawabnya.
+
+"Kita jatuhkan saja sesuai rencana. Kamu masih menunggu bukti keuangannya dia, kan?"
+
+Dia meraih sebuah *flash drive* dari sakunya dan memberikannya padaku. "Aku sudah punya itu dari seminggu lalu, aku hanya belum menentukan apa yang akan kulakukan dengannya, dan kapan."
+
+"*What? How?*" tanyaku terheran. 
+
+"Oh, ayolah, Tika. Dia mengerjakan keuangannya di komputer OSIS. Menurutmu ada komputer di sekolah yang tidak bisa kujangkau?"
+
+"*Show off,*" cibirku. "Lalu apa yang kamu temukan yang sampai membuatmu bingung?"
+
+"Sekitar tujuh puluh lima persen anggaran OSIS yang dia tanda tangani dikeluarkan untuk tujuan yang abu-abu. Dan semuanya lewat dia sendiri. Dia yang mengajukan anggaran, dia yang menerima, dan dia yang mengeluarkan."
+
+"Tujuh puluh lima persen?!" seruku kaget.
+
+"Kamu tau artinya, kan?" Barulah dia memalingkan wajahnya dari jendela dan melihatku.
+
+Aku mengangguk. "Kalau tidak ditangani dengan benar, Anya bisa terseret masuk. Lalu apa rencanamu? Kamu pasti sudah punya rencana."
+
+"*It's more like a bet rather than a fixed plan.*"
+
+"*Then what are you betting on?*"
+
+"Anya"
+
+---
+
+**Gema**
+---
+"*Kamu sungguh juara satu, Gema?!*" seru ibuku dari seberang sana.
+
+"Iya, bu, ini pialanya sedang kubawa. Tapi aku minta ijin pulang agak malam, bu, diajak temanku makan malam untuk merayakan."
+
+"*Boleh, boleh. Jangan terlalu malam, ya. Jam 9 sudah sampai di rumah,*" dengan nada riang. Lalu panggilan itu ditutup sendiri olehnya.
+
+""
