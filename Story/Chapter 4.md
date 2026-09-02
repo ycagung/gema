@@ -89,11 +89,11 @@ Sebagai konteks, di kehidupan sebelumnya aku bukan anak yang paling populer satu
 
 "Kamu suka dengan Anya?" Aku langsung terbatuk-batuk. Kalau aku sedang minum pasti airnya sudah menyembur keluar. *Pertanyaan konyol macam apa ini? Dia kira aku om-om berhidung be--*
 
-*Ah, iya aku masih anak SMP. Tunggu. Kenapa dia menanyakan Anya?*
+*Ah, iya aku masih anak SMA. Tunggu. Kenapa dia menanyakan Anya?*
 
 "Apa yang membuatmu berpikir seperti itu?" tanyaku balik.
 
-"Aku punya insting yang bagus atas perasaan seseorang. Aku tahu kamu baru kenal Anya di kelas delapan ini. Tapi kulihat kamu beberapa kali mengobrol dan berjalan bersama dia. Jujur saja, poinku bukan kamu. Aku hanya melihat Anya lebih rileks waktu dia berinteraksi denganmu."
+"Aku punya insting yang bagus atas perasaan seseorang. Aku tahu kamu baru kenal Anya di kelas sebelas ini. Tapi kulihat kamu beberapa kali mengobrol dan berjalan bersama dia. Jujur saja, poinku bukan kamu. Aku hanya melihat Anya lebih rileks waktu dia berinteraksi denganmu."
 
 *Ah, aku ingat. Kartika adalah teman dekat dengan Anya, mereka satu SD dulu. Pantas saja dia peduli.*
 

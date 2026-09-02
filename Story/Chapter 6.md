@@ -27,11 +27,11 @@ Tak berapa lama, mobil sudah masuk ke parkiran sebuah rumah berwarna putih di da
 
 "Teman-teman, mohon perhatian. Ada pengumuman singkat," ujar Pak Andrew sambil menepuk tangannya dua kali. Semua orang yang ada di situ serentak menolehkan wajahnya menghadap kami berdua. Sebagian langsung cerah karena melihat ada orang baru, sebagian lagi mengernyit. Mungkin mereka bertanya-tanya mengapa ada anak kecil di sini. "Kita kedatangan *Junior Developer* baru. Perkenalkan, ini Gema. Gema, silakan perkenalkan dirimu."
 
-"Terima kasih, Pak Andrew. Perkenalkan, nama saya Gema Cahaya. Saya kelas delapan dari SMP tempat Pak Andrew mengajar. Mohon bimbingannya, kakak-kakak senior," ujarku memperkenalkan diri selayaknya karyawan baru. *Semoga tidak terdengar terlalu profesional.*
+"Terima kasih, Pak Andrew. Perkenalkan, nama saya Gema Cahaya. Saya kelas sebelas dari SMA tempat Pak Andrew mengajar. Mohon bimbingannya, kakak-kakak senior," ujarku memperkenalkan diri selayaknya karyawan baru. *Semoga tidak terdengar terlalu profesional.*
 
 Mereka semua hening setelah mendengarkan perkenalanku, lalu tiba-tiba satu orang wanita berparas manis yang duduk depan sendiri berdiri, mencubit pipiku dan berkata, "Waaaah, lucu sekaliii! Pak Andrew dapat dari mana?" Ruangan itu langsung dipenuhi gelak tawa. Aku hanya bisa mengusap pipiku yang merah dicubit.
 
-"Kan, dia sudah bilang dari SMP tempatku mengajar, Luna?" Pak Andrew menepukkan tangannya dua kali lagi. "Oke akan kuperkenalkan kalian satu-satu pada Gema."
+"Kan, dia sudah bilang dari SMA tempatku mengajar, Luna?" Pak Andrew menepukkan tangannya dua kali lagi. "Oke akan kuperkenalkan kalian satu-satu pada Gema."
 
 "Laki-laki di paling ujung yang matanya seperti belum tidur tiga hari itu Otis, dia adalah *Senior Full Stack* di sini," ujar pak Andrew. Otis melambaikan tangan sambil mengantuk.
 
@@ -79,7 +79,7 @@ Sepuluh menit berikutnya kuhabiskan untuk membuat ulang *Möbius strip* mengguna
 
 "Kamu reinkarnasi Albert Einstein, ya, Gema?" tanya Kara sambil melongo karena kesulitan mengikuti penjelasanku.
 
-"Albert Einstein tidak bisa *programming*, kak," jawabku sambil tertawa kecil. "Lagipula aku tidak mau dikeluarkan dari SMP."
+"Albert Einstein tidak bisa *programming*, kak," jawabku sambil tertawa kecil. "Lagipula aku tidak mau dikeluarkan dari SMA."
 
 "Ayo, sudah cukup perkenalan dan bermainnya," ujar Pak Andrew tiba-tiba dari pintu ruangannya. "Kembali bekerja." Sepertinya aku bisa mendengarkan gerutu dari hati para *developer*.
 

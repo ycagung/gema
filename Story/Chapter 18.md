@@ -1,9 +1,9 @@
 ---
 tags:
   - chapter
-title:
+title: Ironi Kembar
 ---
-# Chapter 18
+# Chapter 18 - Ironi Kembar
 
 ---
 
@@ -85,7 +85,7 @@ Satu per satu kami berlima naik dan menerima piala kami masing-masing. Gema yang
 
 **Kartika**
 ---
-Ruangan yang penuh dengan siswa-siswi SMP se-Surabaya ini riuh rendah dengan sorakan dan tepuk tangan tepat ketika aku memasukinya. Sepertinya Gema sudah menang. Lalu layar di panggung menampilkan rekapitulasi perolehan poin peserta. Ah, Gema menang telak. Aku lalu bersandar mengambil tempat di ujung ruangan.
+Ruangan yang penuh dengan siswa-siswi SMA se-Surabaya ini riuh rendah dengan sorakan dan tepuk tangan tepat ketika aku memasukinya. Sepertinya Gema sudah menang. Lalu layar di panggung menampilkan rekapitulasi perolehan poin peserta. Ah, Gema menang telak. Aku lalu bersandar mengambil tempat di ujung ruangan.
 
 Aku buru-buru meminta Pak Joko untuk menuju kemari sepulang sekolah tadi, sampai aku harus berganti baju di toilet sekolah. Seharian lidahku terasa pahit mengingat tadi pagi aku kesal pada Gema hanya karena hal sepele. Betapa bodohnya.
 
@@ -147,4 +147,32 @@ Aku mengangguk. "Kalau tidak ditangani dengan benar, Anya bisa terseret masuk. L
 
 "*Boleh, boleh. Jangan terlalu malam, ya. Jam 9 sudah sampai di rumah,*" dengan nada riang. Lalu panggilan itu ditutup sendiri olehnya.
 
-""
+"Bagaimana? Boleh?" desak Tika. 
+
+"Boleh," jawabku sambil mengangguk. Sepertinya anggukanku keren sekali sampai-sampai wajahnya langsung cerah secerah matahari. "Sebenarnya kamu mau ajak aku ke mana? Makan? Besok, kan, kita makan bersama dengan orang-orang *Jukebox*?"
+
+Dia hanya tersenyum lebar. "Ikut saja, aku ingin membelikanmu hadiah."
+
+---
+
+Aku berdiri di dalam mall terbesar se-Surabaya bersama Tika di sebelahku. 
+
+"Jadi ini maksudmu?" tanyaku sambil menengadah melihat plang besar bertuliskan "iBox" di depan kita berdua. "Kamu mau aku beli laptop?"
+
+"Tentu tidak, aku mau membelikanmu laptop?"
+
+"*What? Why?* Aku sudah punya komputer di rumah."
+
+"Satu, karena aku belum memberimu hadiah balasan untuk anting ini. Dua, kamu baru saja juara satu olimpiade matematika se-Surabaya. Yang mana sepanjang pengetahuanku, kamu juara satu karena hanya itu peringkat tertinggi yang bisa mereka berikan, bukan karena kamu bisa. Tiga, karena aku ingin saja, memangnya kenapa?"
+
+"*And what if I say no?*"
+
+"*Really? Would you be so mean as to refuse an earnest gift from your earnest girlfriend?.*"
+
+Aku mengangkat alisku sambil melihatnya. Gadis ini memang susah ditolak. "Hah, lihatlah wajahmu, kamu harus mulai *casting* di sinetron lokal," jawabku sambil terkekeh. "Oke, dengan satu syarat."
+
+"Apa itu?" tanya Tika.
+
+"Berhenti mengejarku. Aku tidak akan ke mana-mana. Kamu tahu maksudku, dan aku akan mengatakan hal yang sama dengan kemarin. Aku tidak bisa memberikanmu apa yang kamu inginkan. Jadi jangan membuang tenagamu untuk menggeser posisiku. Kamu tidak akan bisa melakukan itu."
+
+Dia terdiam sejenak. Lalu tersenyum manis. "*I know. I'm not trying to move you. I'm moving myself closer to you.*"

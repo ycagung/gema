@@ -41,7 +41,7 @@ Mendengar perkataan Gema, aku jadi teringat ketulusannya untuk membantu Anya wak
 
 "*Nothing. You have to trust me on this. Or rather, trust Anya,*" jawabnya sambil melihat Anya yang sedang duduk di dalam lab dari sudut matanya. Lalu dia menatapku lagi. "*She can do it, Tika. Don't worry. I'll keep an eye on her.*"
 
-"Kamu tahu dari mana? Bagaimana bisa seyakin itu?" Seingatku dia baru mengenal Anya di kelas delapan. Bagaimana bisa dia berkata seperti itu dengan penuh percaya diri? Seakan dia sudah mengenalnya lama. 
+"Kamu tahu dari mana? Bagaimana bisa seyakin itu?" Seingatku dia baru mengenal Anya di kelas sebelas. Bagaimana bisa dia berkata seperti itu dengan penuh percaya diri? Seakan dia sudah mengenalnya lama. 
 
 "Aku tahu," jawabnya singkat. Dengan mata yang tidak bergeming. Dia benar-benar percaya pada Anya. Kenapa tidak denganku? Aku pacarnya. "Kenapa wajahmu memerah? Kamu sakit?" tanyanya tiba-tiba sambil menempelkan punggung tangannya di dahiku. Wajahku memerah? Mustahil. Memangnya aku kenapa? Aku... Cemburu?
 
@@ -57,9 +57,9 @@ Bu Karin baru saja masuk ke ruangan bersama dengan dua orang kakak kelas. Sepert
 
 "Siang, anak-anak. Saya akan langsung saja, kalian berempat akan menjadi perwakilan sekolah untuk olimpiade matematika tingkat kota dua minggu lagi. Silakan berdiri dan memperkenalkan diri."
 
-Mengikuti kata Bu Karin, Anya berdiri lebih dulu. "Selamat siang, saya Anya dari kelas 8C. Mohon bantuannya," ujarnya singkat diakhiri dengan sedikit membungkuk.
+Mengikuti kata Bu Karin, Anya berdiri lebih dulu. "Selamat siang, saya Anya dari kelas 11C. Mohon bantuannya," ujarnya singkat diakhiri dengan sedikit membungkuk.
 
-Aku berdiri. "Selamat siang, saya Gema dari 8C," ucapku dengan percaya diri. Aku mendengar bisikan kakak kelas yang duduk dekatku. *Pacarnya Kartika, kan?* 
+Aku berdiri. "Selamat siang, saya Gema dari 11C," ucapku dengan percaya diri. Aku mendengar bisikan kakak kelas yang duduk dekatku. *Pacarnya Kartika, kan?* 
 
 Setelah aku duduk, salah satu kakak kelas di belakangku berdiri. "Saya Christie, dari 9A."
 

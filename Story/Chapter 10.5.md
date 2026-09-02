@@ -21,9 +21,9 @@ Vincent mendongak, dia sudah mengenalku betul untuk tahu bahwa aku tidak menerim
 
 "Berapa banyak yang bisa kamu ijinkan?" tanyaku balik tanpa jeda. Vincent menepuk jidatnya.
 
-"Dia anak SMP, Andrew. Mau kamu beri uang berapa banyak-"
+"Dia anak SMA, Andrew. Mau kamu beri uang berapa banyak-"
 
-Vincent berhenti tiba-tiba. Aku menyilangkan tanganku dan hanya bisa berkata, "Sepertinya kita berdua baru sadar kalau kita tidak melihat Gema sebagai anak SMP."
+Vincent berhenti tiba-tiba. Aku menyilangkan tanganku dan hanya bisa berkata, "Sepertinya kita berdua baru sadar kalau kita tidak melihat Gema sebagai anak SMA."
 
 "Kamu ada benarnya," jawab Vincent sambil meletakkan tangannya lagi di dahinya. "*Fine*, dua belas juta. Tapi hanya untuk kali ini. Kalau kamu mau memberinya bonus lagi tiap ada klien yang dia selamatkan, sebaiknya kamu membuat kontrak kerja baru dengannya."
 

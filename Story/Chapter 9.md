@@ -69,7 +69,7 @@ Di luar lingkaran absurd ini, biasanya siswa-siswa laki-laki berkumpul dengan te
 
 Tapi pagi ini ada grup yang sedikit berbeda dari biasanya. Sekumpulan kakak kelas pengurus OSIS sedang berdiskusi di ujung kelas. Ujung mataku menangkap wajah Kevin di situ, sedang berlagak sebagai moderator diskusi. Sepertinya diskusi sedang seru. Yah, dibandingkan grup gosip ini, jelas lebih seru diskusi pengurus OSIS. 
 
-Lalu dari luar jendela aku melihat wajah yang familiar sedang berjalan. Wajah yang aku tahu tidak akan menunjukkan ekspresi jika pemiliknya tidak mau orang lain melihat. Wajah itu milik anak SMP, tapi jika aku berhadapan dengannya, rasanya seperti sedang berhadapan dengan salah satu direktur perusahaan ayahku. Orang-orang yang mampu memecat lima ratus pegawai, memanipulasi pasar sampai perusahaan lawan bangkrut, atau menggenggam seorang walikota dalam kendalinya. Semuanya tanpa ragu atau berpikir dua kali. Setidaknya di mataku, Gema adalah orang dengan tingkat bahaya yang sama. *Lalu kenapa dia masuk kelasku sekarang?* Matanya menangkap wajahku dan melirik sebentar ke arah grup pengurus OSIS. Seakan memastikan kedua targetnya sedang ada di tempat. 
+Lalu dari luar jendela aku melihat wajah yang familiar sedang berjalan. Wajah yang aku tahu tidak akan menunjukkan ekspresi jika pemiliknya tidak mau orang lain melihat. Wajah itu milik anak SMA, tapi jika aku berhadapan dengannya, rasanya seperti sedang berhadapan dengan salah satu direktur perusahaan ayahku. Orang-orang yang mampu memecat lima ratus pegawai, memanipulasi pasar sampai perusahaan lawan bangkrut, atau menggenggam seorang walikota dalam kendalinya. Semuanya tanpa ragu atau berpikir dua kali. Setidaknya di mataku, Gema adalah orang dengan tingkat bahaya yang sama. *Lalu kenapa dia masuk kelasku sekarang?* Matanya menangkap wajahku dan melirik sebentar ke arah grup pengurus OSIS. Seakan memastikan kedua targetnya sedang ada di tempat. 
 
 Aku mengenali pandangannya ketika melihat Kevin. Itu mata orang yang siap menghancurkan lawannya. Dingin, tanpa emosi. Lalu matanya menatapku dalam, aku merasa bulu kudukku berdiri. Kakinya melangkah perlahan ke arahku, aku merasa seperti dunia sendiri sedang mengikuti kemauannya dan menekan jarak antara kita berdua. Sepertinya ruang kelas ini menghilang, siswi-siswi yang bergosip pun hilang. Hanya ada aku dan Gema di sini.
 
@@ -91,7 +91,7 @@ Setelah satu detik penuh, semua orang di dalam kelas bersorak.
 
 "Kamu pacarku sekarang. Laki-laki macam apa aku kalau tidak mentraktir pacarnya makan siang?" jawabku ringan sambil menyuapkan bakso ke mulutku. "Lagipula ini gaji pertamaku, anggap saja ini perayaan untuk itu."
 
-"Gaji pertama? Kamu bekerja? Di mana? Perusahaan apa yang mempekerjakan anak SMP?" tanya Kartika sambil mengangkat sebelah alisnya.
+"Gaji pertama? Kamu bekerja? Di mana? Perusahaan apa yang mempekerjakan anak SMA?" tanya Kartika sambil mengangkat sebelah alisnya.
 
 Aku mengangguk karena mulutku penuh bakso. "Di *software house* milik Pak Andrew," jawabku setelah menelan bakso. "Sudahlah, itu tidak penting. Aku hanya butuh uangnya agar rencanaku berjalan lancar. Lagipula, aku memacari anak terkaya satu sekolah. Setidaknya aku harus punya pekerjaan."
 

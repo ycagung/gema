@@ -107,7 +107,7 @@ Aku tertawa dalam hati. Seorang Kusumo Adiwibowo meminta penjelasan dari orang l
 
 "Karena kompetitor kita semuanya sampah, pak. Algoritma mereka jelek, tidak optimal, dan harga mereka tinggi," jawabku tanpa bergeming sedikitpun. Wajahnya berubah sangat dingin dan keras.
 
-"Gema, kamu masih SMP. Kamu yakin bisa bertanggung jawab atas pernyataanmu itu?" 
+"Gema, kamu masih SMA. Kamu yakin bisa bertanggung jawab atas pernyataanmu itu?" 
 
 "Saya kira bapak mengharapkan Tika untuk punya tekad dan keyakinan seperti ini. Kenapa saya tidak boleh punya hal yang sama?"
 

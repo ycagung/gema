@@ -33,7 +33,7 @@ Akhirnya aku menyerah. Bukan karena apa-apa, tapi aku melihat ketulusan di mata 
 
 **Gema**
 ---
-Mobil taksi itu melaju pergi setelah menurunkanku di sebuah toko emas. Tak pernah terpikirkan olehku bahkan di kehidupan sebelumnya kalau aku akan membeli sebuah perhiasan hanya untuk melancarkan sebuah rencana. Tapi di sinilah aku, seorang anak SMP memasuki toko emas. 
+Mobil taksi itu melaju pergi setelah menurunkanku di sebuah toko emas. Tak pernah terpikirkan olehku bahkan di kehidupan sebelumnya kalau aku akan membeli sebuah perhiasan hanya untuk melancarkan sebuah rencana. Tapi di sinilah aku, seorang anak SMA memasuki toko emas. 
 
 "Selamat datang, kak, apa yang bisa kami bantu?" sapa seorang staf berbaju rapi dan rambut terikat elegan. Aku cukup tinggi untuk ukuran anak seumurku dan sepertinya aku juga tidak membawa diri sebagai anak-anak, jadi mereka menganggapku sebagai remaja biasa.
 
@@ -55,7 +55,7 @@ Mataku memindai satu demi satu pasang dari kiri ke kanan. *Terlalu norak. Terlal
 ---
 Aku duduk di depan cermin besar di kamarku. Jam dinding bilang ini pukul empat sore. Aku akan menghadiri undangan ulang tahun salah satu kakak kelas yang kukenal pukul enam nanti. Biasanya aku tidak duduk berlama-lama, apalagi tidak melakukan apapun seperti ini. Ibuku mengajarkan untuk selalu menghargai waktu, lakukan apa yang bisa dilakukan sebaik dan seefisien mungkin. Tapi sepasang anting-anting di tanganku ini membuatku melamun. 
 
-Bentuk dasarnya adalah bintang empat titik yang ramping dan berujung tajam. Lengan utara dan selatan lebih panjang dari timur dan barat. Warnanya putih berkilau indah. Ada cincin kecil yang melingkar bebas secara diagonal di tengah bintang itu. Sangat elegan. Dan ini emas asli yang disepuh berwarna putih, aku yakin beratnya tidak kurang dari lima gram. Untuk sebuah kado pernyataan cinta dari seorang anak SMP, ini sangat-sangat berlebihan. Apalagi pernyataan cinta itu sesungguhnya palsu. *Apa dia menghabiskan gaji pertamanya untuk membelikan ini? Apa kata orang tuanya, coba?*
+Bentuk dasarnya adalah bintang empat titik yang ramping dan berujung tajam. Lengan utara dan selatan lebih panjang dari timur dan barat. Warnanya putih berkilau indah. Ada cincin kecil yang melingkar bebas secara diagonal di tengah bintang itu. Sangat elegan. Dan ini emas asli yang disepuh berwarna putih, aku yakin beratnya tidak kurang dari lima gram. Untuk sebuah kado pernyataan cinta dari seorang anak SMA, ini sangat-sangat berlebihan. Apalagi pernyataan cinta itu sesungguhnya palsu. *Apa dia menghabiskan gaji pertamanya untuk membelikan ini? Apa kata orang tuanya, coba?*
 
 "*Talking about putting your money where your mouth is,*" gumamku.
 

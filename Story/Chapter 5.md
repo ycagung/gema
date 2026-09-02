@@ -11,7 +11,7 @@ title: Tic
 ---
 Hangatnya *hair dryer* ini sangat nyaman dibanding dinginnya pagi yang hujan. *Pasti nanti jalanan becek, memang harus pakai mobil nanti.* Seusai mengeringkan rambut, kukenakan seragam sekolah hari ini. Putih biru. Seragam favoritku. Terakhir, kuambil jam tangan di meja dan pandangan mataku jatuh pada pigura foto kecil di sebelahnya. Fotoku berdua dengan Anya ketika kelulusan SD dulu. Kami sama-sama menggunakan kaus kuning, tertawa sangat bahagia. *Anya, Anya, apa yang terjadi pada kita?*
 
-Semenjak Anya masuk OSIS di semester dua kelas tujuh, kami sudah hampir tidak pernah bertemu. Dia selalu sibuk dengan kegiatannya, selalu ada rapat, selalu ada pentas. Sedangkan aku, selalu dihampiri anak-anak yang kalau tidak mengaku menyukaiku ya mengincar popularitas dariku. Aku merindukan masa-masa sederhana di mana aku bisa bermain dengan Anya tanpa harus memikirkan hal lain. 
+Semenjak Anya masuk OSIS di semester dua kelas sepuluh, kami sudah hampir tidak pernah bertemu. Dia selalu sibuk dengan kegiatannya, selalu ada rapat, selalu ada pentas. Sedangkan aku, selalu dihampiri anak-anak yang kalau tidak mengaku menyukaiku ya mengincar popularitas dariku. Aku merindukan masa-masa sederhana di mana aku bisa bermain dengan Anya tanpa harus memikirkan hal lain. 
 
 Masalah terbesarnya adalah aku bisa melihat mana orang yang tulus dan tidak, sedangkan Anya... Tidak sama sekali. Semenjak bergabung dengan OSIS dia didekati oleh parasit berwajah dua bernama Kevin itu. Wajahnya yang satu terlihat ganteng dan ramah, tapi aku tahu wajahnya yang satu lagi. Wajah yang tidak pernah dia tunjukkan ke orang lain selain Anya, tapi Anya pun tidak tahu kalau wajah itu busuk. Kemarin kulihat mereka berdua makan bakso di warung sepi dan kotor itu. Aku tahu Kevin mengajaknya ke sana hanya untuk berduaan dengan Anya. *Tapi ayolah, setidaknya jadi laki-laki yang punya kelas. Ajak wanitamu makan di tempat yang bagus jika ingin berduaan. Dasar tidak modal.* 
 
@@ -23,7 +23,7 @@ Aku berjalan ke depan rumah untuk menunggu supirku datang. Tiba-tiba kulihat seo
 
 ---
 
-Hanya ada lima sentimeter di antara kami berdua. Gema terlihat tinggi menjulang jika dibandingkan denganku. *Tapi aku tidak bisa menyerah sekarang.* Kutatap dalam matanya. Dia terlihat sangat dingin dan menakutkan. Anak SMP macam apa yang bisa mengintimidasiku seperti ini? Aku sering ikut ayah bernegosiasi dengan pimpinan-pimpinan korporat tinggi tapi auranya tidak seperti ini. Aku hampir kehilangan kendali diriku dan ingin mundur ketika tiba-tiba kudengar dia tertawa. *Sial, aku dipermainkan.*
+Hanya ada lima sentimeter di antara kami berdua. Gema terlihat tinggi menjulang jika dibandingkan denganku. *Tapi aku tidak bisa menyerah sekarang.* Kutatap dalam matanya. Dia terlihat sangat dingin dan menakutkan. Anak SMA macam apa yang bisa mengintimidasiku seperti ini? Aku sering ikut ayah bernegosiasi dengan pimpinan-pimpinan korporat tinggi tapi auranya tidak seperti ini. Aku hampir kehilangan kendali diriku dan ingin mundur ketika tiba-tiba kudengar dia tertawa. *Sial, aku dipermainkan.*
 
 "Kemari," katanya. Aku mendekatkan telingaku dan dia mulai membisikkan rencananya.
 
@@ -95,7 +95,7 @@ Detik jam dinding kelas terasa lambat sekali. Bu Karin baru masuk dan akan memul
 
 ---
 
-Sepertinya baru hari kemarin aku direkomendasikan oleh wali kelas untuk maju sebagai pengurus OSIS. Tiba-tiba aku sudah naik kelas saja. Sejujurnya aku menikmatinya, terlibat dalam sebuah organisasi yang membawa pengaruh baik. Dan kakak-kakak kelas juga terlihat mendukungku sebagai satu-satunya anak kelas tujuh yang direkomendasikan masuk. Justru ada satu kakak kelas yang sepertinya sangat perhatian padaku. Waktu pertama kali masuk, Kak Kevin lah yang paling memperhatikanku. Dia menanyakan apakah aku sudah makan siang, apakah aku terlalu lelah, mengizinkanku untuk pulang duluan karena hari terlalu sore. Dia baik sekali. Sepertinya karena itulah aku mengiyakan ketika dia meminta gandengan tanganku dua bulan lalu. 
+Sepertinya baru hari kemarin aku direkomendasikan oleh wali kelas untuk maju sebagai pengurus OSIS. Tiba-tiba aku sudah naik kelas saja. Sejujurnya aku menikmatinya, terlibat dalam sebuah organisasi yang membawa pengaruh baik. Dan kakak-kakak kelas juga terlihat mendukungku sebagai satu-satunya anak kelas sepuluh yang direkomendasikan masuk. Justru ada satu kakak kelas yang sepertinya sangat perhatian padaku. Waktu pertama kali masuk, Kak Kevin lah yang paling memperhatikanku. Dia menanyakan apakah aku sudah makan siang, apakah aku terlalu lelah, mengizinkanku untuk pulang duluan karena hari terlalu sore. Dia baik sekali. Sepertinya karena itulah aku mengiyakan ketika dia meminta gandengan tanganku dua bulan lalu. 
 
 Tapi akhir-akhir ini sifatnya agak berubah. Sekarang dia lebih sering mengajakku pergi berdua saja, kadang meninggalkan kewajiban OSIS yang harus dilakukan sepulang sekolah. Ketika aku sempat menolak dia berkata, "ayolah, temani aku. Aku terlalu stress dengan pekerjaan-pekerjaan ini. Aku sudah sering menemanimu, kan?" Alhasil aku hanya bisa mengiyakan. Kemarin pun seperti itu juga.
 

@@ -17,7 +17,7 @@ title: Disorientasi
 
 "Aku..." ujarku terbata. "Aku... mungkin hanya mimpi buruk, bu."
 
-"Kamu menangis karena mimpi buruk? Ayolah, kamu sudah SMP. Cepat mandi dan bersiap ke sekolah." Suara ibu hanya terdengar samar-samar di tengah luapan emosi yang tiba-tiba ini. Aku memaksakan senyuman dan mengangguk. Ibu menepuk pundakku dan pergi ke dapur. 
+"Kamu menangis karena mimpi buruk? Ayolah, kamu sudah SMA. Cepat mandi dan bersiap ke sekolah." Suara ibu hanya terdengar samar-samar di tengah luapan emosi yang tiba-tiba ini. Aku memaksakan senyuman dan mengangguk. Ibu menepuk pundakku dan pergi ke dapur. 
 
 Perlahan aku mulai bisa mendengar jantungku berdebar, lalu telingaku berdenging. Tiba-tiba dadaku terasa sesak dan leherku sangat panas seperti dicekik. Tanganku yang gemetar hebat berusaha menggapai leherku, mencari apa yang mencekikku. Tapi tidak ada. Lalu kesadaran itu menimpaku seperti sebuah batu raksasa. Aku sungguh baru saja mati terpenggal karena kecelakaan lalu lintas. Aku benar-benar mati tadi. Lalu ini apa? Apa aku di neraka? Seperti ini kah bentuk neraka? Karena aku tidak mungkin masuk surga. Tapi tidak mungkin ibuku di neraka! LALU INI APA?!
 
@@ -31,7 +31,7 @@ Aku turun dari kasur dan berjalan perlahan keluar kamar. Harum masakan ibuku sem
 
 "Bu, ini tanggal berapa?" Suaraku terdengar kecil. Aku tidak merasa memiliki suara semacam ini, ini... suara anak menjelang remaja. Lalu terlihatlah wajahku di cermin kecil, tenggorokanku langsung tersedak angin kosong.
 
-"29 Juni, Gem. Kenapa?" Ibu menjawab, tapi tidak terdengan olehku. Aku sibuk mendekati cermin, meraba pipiku, dahiku, rambutku. Wajahku kembali seperti waktu aku baru masuk SMP. 
+"29 Juni, Gem. Kenapa?" Ibu menjawab, tapi tidak terdengan olehku. Aku sibuk mendekati cermin, meraba pipiku, dahiku, rambutku. Wajahku kembali seperti waktu aku baru masuk SMA. 
 
 "Gem... Kamu sedang apa? Jerawatan?" tanya ibu lagi, membuatku terkaget.
 
@@ -57,7 +57,7 @@ Kata-kata ibu seperti menampar wajahku yang masih melamun. *Sialan, sekolah*.
 
 "Sepertinya belum," jawabku ke Jonas. "Mari kita lihat." Aku membuka tasku dan mencari buku tulis matematika, dan benarlah di situ, baris-baris jawaban yang harusnya terisi masih kosong melompong. "Yap, belum," kutegaskan lagi ke Jonas sambil menyengir.
 
-"Aduh, lalu bagaimana, Gem? Aku juga belum. Ah, jangankan belum, mengerti pun tidak." ujar Jonas dengan kepanikannya. *Dasar parasit*. Jonas adalah teman sebangkuku di kelas 8C. Cukup asik diajak bermain. Atau setidaknya itu dulu ketika mentalku masih mental remaja. Sekarang dia sangat mirip dengan anggota timku yang baru kemarin kuomeli karena kerjaannya tidak becus. 
+"Aduh, lalu bagaimana, Gem? Aku juga belum. Ah, jangankan belum, mengerti pun tidak." ujar Jonas dengan kepanikannya. *Dasar parasit*. Jonas adalah teman sebangkuku di kelas 11C. Cukup asik diajak bermain. Atau setidaknya itu dulu ketika mentalku masih mental remaja. Sekarang dia sangat mirip dengan anggota timku yang baru kemarin kuomeli karena kerjaannya tidak becus. 
 
 Tanpa bicara apapun, mulai kukerjakan PR matematika itu. *Cuma aljabar dasar, aku bisa mengerjakan ini dalam tiga bahasa lain sambil setengah tidur.* Sepertinya tiga puluh detik belum berlalu ketika kuletakkan bolpoinku karena sepuluh soal sudah selesai dikerjakan semua. 
 

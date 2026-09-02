@@ -31,7 +31,7 @@ Waktu aku mematikan komputer sebelum pulang, aku sudah meninggalkan dua puluh li
 ---
 *Hari baru, semangat baru!* Aku memasuki ruang kerja dengan gembira. "*Morning, guys*!" sapaku pada Hans dan Otis. Baru mereka yang sudah datang dan menempelkan mata mereka ke layar. *Atau mereka tidak pulang?*
 
-"*Morning,* Luna," jawab mereka bersamaan. Sebagai primadona (*self-appointed*) di kantor ini, aku harus selalu membawa suasana yang cerah dan gembira. Lagipula kita sekarang punya anggota baru, seorang anak SMP yang sangat imut dan lucu, tapi luar biasa pintar. Aku tidak boleh murung dan suram, karena anak kecil itu sensitif. *Dia harusnya masih bermain, tapi sekarang memilih untuk bekerja. Semoga dia tidak dipaksa siapapun.*
+"*Morning,* Luna," jawab mereka bersamaan. Sebagai primadona (*self-appointed*) di kantor ini, aku harus selalu membawa suasana yang cerah dan gembira. Lagipula kita sekarang punya anggota baru, seorang anak SMA yang sangat imut dan lucu, tapi luar biasa pintar. Aku tidak boleh murung dan suram, karena anak kecil itu sensitif. *Dia harusnya masih bermain, tapi sekarang memilih untuk bekerja. Semoga dia tidak dipaksa siapapun.*
 
 ---
 

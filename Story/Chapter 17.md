@@ -15,7 +15,7 @@ Senandung dari mulutku yang sangat-sangat kunikmati di pagi yang sejuk dan sepi 
 
 "Aku tidak pernah mendengarmu bernyanyi," ujarnya. 
 
-"Tika. *Aren't you being too clingy right now?* " tanyaku sambil mendorong pelan bahunya agar sedikit menjauh. Rasanya sangat aneh digandeng oleh anak SMP. Aku takut tiba-tiba ada polisi yang menangkapku. 
+"Tika. *Aren't you being too clingy right now?* " tanyaku sambil mendorong pelan bahunya agar sedikit menjauh. Rasanya sangat aneh digandeng oleh anak SMA. Aku takut tiba-tiba ada polisi yang menangkapku. 
 
 "Aku tidak peduli. *I'll hold onto you as long as I want to,*" jawabnya sambil tersenyum.
 
@@ -59,7 +59,7 @@ Aku merasa aneh. Mungkin karena pikiranku sibuk merencanakan banyak hal rumit so
 
 "Apanya serius?" tanyaku balik.
 
-"Aku siswa nomor satu seangkatan. Kamu tidak melihat papan *ranking* waktu kenaikan kelas tujuh? Nilaiku bahkan melebihi peringkat satu angkatan lain," 
+"Aku siswa nomor satu seangkatan. Kamu tidak melihat papan *ranking* waktu kenaikan kelas sepuluh? Nilaiku bahkan melebihi peringkat satu angkatan lain," 
 
 Sekarang ganti aku yang memiringkan kepala. Tika melipat tangannya, wajahnya mulai sedikit cemberut. "Kamu?" tanyaku balik. Sekarang wajahnya seratus persen cemberut. "Tunggu. Sebentar, sebentar. Berarti aku memacari siswa nomor satu? Lalu kalau kamu siswa nomor satu, kenapa Anya yang ikut olimpiade?"
 
@@ -71,9 +71,9 @@ Aku tidak bisa berkata-kata. Yang dikatakan Tika itu semuanya benar, aku saja ya
 
 "Aku tidak mau bicara denganmu lagi hari ini," potongnya sebelum aku sempat bicara apapun. Lalu dia membalikkan badannya dan pergi begitu saja. Meninggalkanku ternganga. 
 
-Aku ingin mengutuk situasinya, tapi tidak adil juga kalau aku menyalahkan anak SMP hanya karena aku tidak mau disalahkan. Menyebalkan. Buat apa juga kemarin aku melibatkan Tika di hidupku? Kalau tahu aku harus menghadapi konflik-konflik tidak penting begini, lebih baik aku jalan sendiri saja sejak awal. 
+Aku ingin mengutuk situasinya, tapi tidak adil juga kalau aku menyalahkan anak SMA hanya karena aku tidak mau disalahkan. Menyebalkan. Buat apa juga kemarin aku melibatkan Tika di hidupku? Kalau tahu aku harus menghadapi konflik-konflik tidak penting begini, lebih baik aku jalan sendiri saja sejak awal. 
 
-Tanganku refleks masuk ke saku dan mencari bungkus rokok yang selama berpuluh-puluh tahun selalu ada di saat aku frustrasi. Tapi jelas saja tidak akan kutemukan. Karena sekarang AKU ANAK SMP! Aku mengumpat keras dalam hati.
+Tanganku refleks masuk ke saku dan mencari bungkus rokok yang selama berpuluh-puluh tahun selalu ada di saat aku frustrasi. Tapi jelas saja tidak akan kutemukan. Karena sekarang AKU ANAK SMA! Aku mengumpat keras dalam hati.
 
 ---
 

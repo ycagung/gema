@@ -31,7 +31,7 @@ Bel pulang sekolah berbunyi. Semua bersorak gembira. Aku tetap diam.
 
 "Tentu, ayo," kumasukkan tanganku ke dalam saku dan kita berjalan beriringan. 
 
-"Kamu tahu, Gem? Aku tadi mendengar dari desas-desus kalau ada siswa kelas 8C yang menjawab Bu Karin dengan sangat baik sampai beliau terdiam. Pintar sekali siswa ini, ya? Bagaimana menurutmu?" ujarnya sambil menyenggolkan sikunya ke lenganku. Pertanyaan retoris gadis satu ini membuatku ingin menyentil dahinya. 
+"Kamu tahu, Gem? Aku tadi mendengar dari desas-desus kalau ada siswa kelas 11C yang menjawab Bu Karin dengan sangat baik sampai beliau terdiam. Pintar sekali siswa ini, ya? Bagaimana menurutmu?" ujarnya sambil menyenggolkan sikunya ke lenganku. Pertanyaan retoris gadis satu ini membuatku ingin menyentil dahinya. 
 
 "Menurutku persamaan kuadrat itu tidak sesulit yang dibayangkan. Jadi mungkin siswa ini juga tidak begitu pintar." jawabku sambil mengangkat bahu. 
 
@@ -49,7 +49,7 @@ Tak terasa kami sudah sampai di depan lab biologi, dan ruang komputer ada di seb
 
 "Um... Ah, sudahlah. Tidak usah, aku tidak ingin merepotkanmu. *Bye*, Gem." ujarnya cepat sambil langsung menutup pintu. Menyisakan aku sendiri di luar lab dan tercengang. *Aku tidak salah lihat?* Wajah Anya terlihat memerah waktu memintaku mendatanginya lagi. 
 
-*Ah, sudahlah.* Kukesampingkan pikiran itu dulu dan melangkahkan kakiku ke ruang komputer. Kuketuk pintunya dua kali dan memanggil, "Pak Andrew, ini Gema, kelas 8C. Boleh saya masuk?"
+*Ah, sudahlah.* Kukesampingkan pikiran itu dulu dan melangkahkan kakiku ke ruang komputer. Kuketuk pintunya dua kali dan memanggil, "Pak Andrew, ini Gema, kelas 11C. Boleh saya masuk?"
 
 "Masuk, Gema." jawab Pak Andrew dari dalam.
 

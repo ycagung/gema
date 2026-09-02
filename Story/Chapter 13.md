@@ -35,7 +35,7 @@ Aku mengangkat bahuku, "Oke, terserah saja."
 
 **Ibu**
 ---
-Pintu kamarnya sedikit terbuka, lampunya pun masih menyala padahal waktu sudah menunjukkan pukul 10 malam. Mungkin dia kesal karena tadi permintaannya kutolak. Bagaimana tidak? Dia mau bekerja sampai pukul delapan malam. Anak SMP macam apa yang bekerja sampai malam? Bagaimana dengan tugas-tugas sekolahnya? Lalu untuk apa pula? Memangnya orang tuanya tidak bisa mencukupi kebutuhannya?
+Pintu kamarnya sedikit terbuka, lampunya pun masih menyala padahal waktu sudah menunjukkan pukul 10 malam. Mungkin dia kesal karena tadi permintaannya kutolak. Bagaimana tidak? Dia mau bekerja sampai pukul sebelas malam. Anak SMA macam apa yang bekerja sampai malam? Bagaimana dengan tugas-tugas sekolahnya? Lalu untuk apa pula? Memangnya orang tuanya tidak bisa mencukupi kebutuhannya?
 
 Kuintip sedikit dari celah pintu kamarnya. Ternyata dia baru selesai merakit komputer barunya dan sedang menyalakan monitor. Komputer itu tidak terlihat seperti barang baru, mungkin dia minta tolong teman sekantornya untuk membelikan barang bekas. Tangannya bergerak lincah di atas *keyboard* seperti dia sudah memegang itu berpuluh-puluh tahun. Aku yang sudah bekerja di depan komputer selama sepuluh tahun lebih saja tidak selincah itu. *Bagaimana bisa?*
 
@@ -45,7 +45,7 @@ Kuintip sedikit dari celah pintu kamarnya. Ternyata dia baru selesai merakit kom
 
 "Kamu kemarin tidak seperti ini, Gema." Aku tidak bisa menahan diriku dari bertanya. "Ayah dan ibu tidak pernah punya komputer, tidak pernah melihatmu membaca buku tentang komputer juga. Bagaimana bisa kamu seperti ini? Kamu sangat mirip teman kantor ibu di bagian IT."
 
-Dia terdiam, tangannya berhenti menggerakkan *mouse* dan *keyboard*. Lalu dia berputar menghadapku. "Aku... belajar di sekolah. Semenjak kelas tujuh kemarin aku merasa sangat tertarik dengan komputer. Jadi banyak waktu istirahat kugunakan untuk belajar di ruang komputer. Untunglah ada Pak Andrew yang mendukungku," jawabnya kalem. Jawabannya masuk akal, aku mendengar ada beberapa anak jenius yang sangat pintar komputer dalam waktu cepat. Mungkin Gema salah satunya. "Aku tak apa, bu. Ini adalah sesuatu yang sangat kunikmati, ibu tidak perlu khawatir," tambahnya tiba-tiba dengan setengah senyum.
+Dia terdiam, tangannya berhenti menggerakkan *mouse* dan *keyboard*. Lalu dia berputar menghadapku. "Aku... belajar di sekolah. Semenjak kelas sepuluh kemarin aku merasa sangat tertarik dengan komputer. Jadi banyak waktu istirahat kugunakan untuk belajar di ruang komputer. Untunglah ada Pak Andrew yang mendukungku," jawabnya kalem. Jawabannya masuk akal, aku mendengar ada beberapa anak jenius yang sangat pintar komputer dalam waktu cepat. Mungkin Gema salah satunya. "Aku tak apa, bu. Ini adalah sesuatu yang sangat kunikmati, ibu tidak perlu khawatir," tambahnya tiba-tiba dengan setengah senyum.
 
 "Baiklah kalau begitu, ibu percaya padamu. Tapi cepatlah tidur! Sudah malam."
 
