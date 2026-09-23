@@ -4,39 +4,17 @@
     "type": "split",
     "children": [
       {
-        "id": "365365715aea9ae5",
+        "id": "a07b78661fb637c2",
         "type": "tabs",
         "children": [
           {
-            "id": "3ac13d5aa36161c8",
+            "id": "df5656388a269444",
             "type": "leaf",
             "state": {
-              "type": "image",
-              "state": {
-                "file": "Illustrations/Kartika/female_student__long_black_hair__beautiful_face__big_breast__sexy_school_uniform__standing_in_the_middle_of_the_class__blackboard_in_the_background__smiling_softly__282526397.png"
-              },
-              "icon": "lucide-image",
-              "title": "female_student__long_black_hair__beautiful_face__big_breast__sexy_school_uniform__standing_in_the_middle_of_the_class__blackboard_in_the_background__smiling_softly__282526397"
-            }
-          }
-        ]
-      },
-      {
-        "id": "fecfba066eedd862",
-        "type": "tabs",
-        "children": [
-          {
-            "id": "e87a937fc93b4c04",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Story (Eng)/Arc 3 - Chapter 3.md",
-                "mode": "source",
-                "source": false
-              },
+              "type": "empty",
+              "state": {},
               "icon": "lucide-file",
-              "title": "Arc 3 - Chapter 3"
+              "title": "New tab"
             }
           }
         ]
@@ -200,20 +178,21 @@
       "bases:Create new base": false
     }
   },
-  "active": "e87a937fc93b4c04",
+  "active": "c44fd4ddc1ccf84a",
   "lastOpenFiles": [
-    "Illustrations/Kartika/female_student__long_black_hair__beautiful_face__big_breast__sexy_school_uniform__standing_in_the_middle_of_the_class__blackboard_in_the_background__smiling_softly__282526397.png",
-    "Illustrations/Kartika/full_body_picture_of_a_young_asian_female_in_her_20s__long_black_hair__layered__beautiful_face__big_firm_breast__cleavage__navy_v_neck_shirt__short_beige_blazer__beige_pants__high_heels__547069335.png",
-    "Illustrations/Kartika/full_body_picture_of_a_young_asian_female_in_her_20s__long_black_hair__layered__beautiful_face__big_firm_breast__deep_cleavage__navy_v_neck_shirt__short_beige_blazer__beige_pants__high__1254098821.png",
-    "Illustrations/Kartika/full_body_picture_of_a_young_asian_female_in_her_20s__long_black_hair__layered__beautiful_face__big_firm_breast__deep_cleavage__navy_v_neck_shirt__short_beige_blazer__beige_pants__high_h_319759384.png",
-    "Illustrations/Kartika/female_student__long_black_hair__beautiful_face__big_breast__school_uniform__standing_in_the_middle_of_the_class__blackboard_in_the_background__smiling_softly__sharp_face_features__4281622738.png",
-    "Illustrations/Kartika/female_student__black_hair__updone__beautiful_face__big_breast__smiling_softly__standing_in_a_ballroom__elegant_pose__white_form_fitting_off_shoulder_dress__high_heels___2180815601.png",
-    "Illustrations/Kartika/female_student__black_hair__done_elegantly__beautiful_face__big_breast__smiling_softly__standing_in_a_ballroom__elegant_pose__white_form_fitting_off_shoulder_dress__high_heels___2349590928.png",
+    "Illustrations/Kartika/1719365712.png",
+    "Illustrations/Kartika/1182162753.png",
+    "Illustrations/Kartika/508088947.png",
+    "Illustrations/Kartika/282526397.png",
+    "Illustrations/Kartika/74415003.png",
+    "Illustrations/Kartika/3187003399.png",
+    "Illustrations/Kartika/3289711082.png",
+    "Illustrations/Kartika/3513573701.png",
+    "Illustrations/Kartika/3306530092.png",
+    "Illustrations/Kartika/203347272896.png",
+    "Illustrations/Kartika/202659598135.png",
     "Story (Eng)/Arc 3 - Chapter 3.md",
     "Story/Chapter (unkown).md",
-    "Illustrations/Kartika/full_body_picture_of_a_young_asian_female_in_her_20s__long_black_hair__layered__beautiful_face__big_firm_breast__deep_cleavage__navy_v_neck_shirt__short_beige_blazer__beige_pants__silve_2504886023.png",
-    "Illustrations/Kartika/full_body_picture_of_a_young_asian_female_in_her_20s__long_black_hair__updone__beautiful_face__big_firm_breast__deep_cleavage__dark_halter_dress_with_intricate_neckline__matching_high_he_951060680.png",
-    "Illustrations/Kartika/full_body_picture_of_a_young_female_student__black_hair__updone__beautiful_face__big_breast__smiling_softly__standing_in_a_ballroom__elegant_pose__white_form_fitting_off_shoulder_dress_w_592087941.png",
     "Illustrations/Kartika",
     "Illustrations",
     "Story (Eng)/Chapter 3.md",
