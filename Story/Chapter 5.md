@@ -9,7 +9,7 @@ title: Tic
 
 **Kartika**
 ---
-Hangatnya *hair dryer* ini sangat nyaman dibanding dinginnya pagi yang hujan. *Pasti nanti jalanan becek, memang harus pakai mobil nanti.* Seusai mengeringkan rambut, kukenakan seragam sekolah hari ini. Putih biru. Seragam favoritku. Terakhir, kuambil jam tangan di meja dan pandangan mataku jatuh pada pigura foto kecil di sebelahnya. Fotoku berdua dengan Anya ketika kelulusan SD dulu. Kami sama-sama menggunakan kaus kuning, tertawa sangat bahagia. *Anya, Anya, apa yang terjadi pada kita?*
+Hangatnya *hair dryer* ini sangat nyaman dibanding dinginnya pagi yang hujan. *Pasti nanti jalanan becek, memang harus pakai mobil nanti.* Seusai mengeringkan rambut, kukenakan seragam sekolah hari ini. Putih abu-abu. Seragam favoritku. Terakhir, kuambil jam tangan di meja dan pandangan mataku jatuh pada pigura foto kecil di sebelahnya. Fotoku berdua dengan Anya ketika kelulusan SD dulu. Kami sama-sama menggunakan kaus kuning, tertawa sangat bahagia. *Anya, Anya, apa yang terjadi pada kita?*
 
 Semenjak Anya masuk OSIS di semester dua kelas sepuluh, kami sudah hampir tidak pernah bertemu. Dia selalu sibuk dengan kegiatannya, selalu ada rapat, selalu ada pentas. Sedangkan aku, selalu dihampiri anak-anak yang kalau tidak mengaku menyukaiku ya mengincar popularitas dariku. Aku merindukan masa-masa sederhana di mana aku bisa bermain dengan Anya tanpa harus memikirkan hal lain. 
 

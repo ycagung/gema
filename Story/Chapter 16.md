@@ -1,8 +1,10 @@
 ---
-tags: chapter
-title: Shape of Your Heart
+tags: 
+  - chapter
+title: 
+  - *Shape of My Heart*
 ---
-# Chapter 16 - *Shape of Your Heart*
+# Chapter 16 - *Shape of My Heart*
 
 ---
 

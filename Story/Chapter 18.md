@@ -39,7 +39,7 @@ Ruangan itu sudah terisi separuh oleh peserta-peserta olimpiade lain.
 
 Aku mengangkat alis dan menatapnya balik. "Aku? Aku kenapa?"
 
-"Ah, baguslah," ujarnya. Wajahnya kembali tersenyum, sepertinya dia sudah tidak kesal dengan Kak Christie. Tunggu, kenapa pula dia harus kesal dengan Kak Christie? Dia kan tidak melakukan apa-apa? Ah, sudahlah, tidak perlu memikirkan itu. "Kamu masih ingat semua yang kuajarkan dua minggu kemarin, Anya?"
+"Ah, sudahlah," ujarnya. Wajahnya kembali tersenyum, sepertinya dia sudah tidak kesal dengan Kak Christie. Tunggu, kenapa pula dia harus kesal dengan Kak Christie? Dia kan tidak melakukan apa-apa? Ah, sudahlah, tidak perlu memikirkan itu. "Kamu masih ingat semua yang kuajarkan dua minggu kemarin, Anya?"
 
 Aku mengangguk. "Tidak semua, tapi sebagian besar masih kuingat. Aku juga latihan sendiri di rumah dari soal-soalmu."
 
@@ -73,7 +73,7 @@ Layar di panggung menampilkan grafik perolehan poin dari para juara. Mulai dari 
 
 Aku hendak berdiri sebelum tanganku ditahan oleh Gema.
 
-"Anya, kemari sebentar," ujarnya. Aku mendekatkan telingaku padanya. "Ketika turun panggung nanti, jangan sekali-kali menoleh padaku lagi. Aku tahu kamu tahu maksudku. Ingat pesanku di mobil tadi pagi. Sampai ketemu lagi di ujung jalan, Anya. Aku percaya padamu, jadi kamu harus percaya pada dirimu sendiri."
+"Anya, kemari sebentar," ujarnya. Aku mendekatkan telingaku padanya. "Ketika turun panggung nanti, jangan sekali-kali menoleh padaku lagi. Aku tahu kamu tahu maksudku. Ingat pesanku di mobil tadi pagi." Dia berhenti untuk menarik nafas sekali, seperti sedang meyakinkan dirinya sendiri. Sampai ketemu lagi di ujung jalan, Anya. Aku percaya padamu, jadi kamu harus percaya pada dirimu sendiri."
 
 Setelah membisikkan itu dia langsung berdiri dan berjalan menuju panggung, meninggalkanku kebingungan. Aku tahu maksud pesan pertamanya tadi, meskipun aku tidak tahu kenapa dia harus peduli. Tapi pesan terakhirnya yang membuatku berpikir. Apa maksudnya "ujung jalan"?
 
@@ -85,7 +85,7 @@ Satu per satu kami berlima naik dan menerima piala kami masing-masing. Gema yang
 
 **Kartika**
 ---
-Ruangan yang penuh dengan siswa-siswi SMA se-Surabaya ini riuh rendah dengan sorakan dan tepuk tangan tepat ketika aku memasukinya. Sepertinya Gema sudah menang. Lalu layar di panggung menampilkan rekapitulasi perolehan poin peserta. Ah, Gema menang telak. Aku lalu bersandar mengambil tempat di ujung ruangan.
+Ruangan yang penuh dengan siswa-siswi SMA se-Surabaya ini riuh rendah dengan sorakan dan tepuk tangan tepat ketika aku memasukinya. Sepertinya Gema sudah menang. Lalu layar di panggung menampilkan rekapitulasi perolehan poin peserta. Ah, Gema menang telak, tentu saja.
 
 Aku buru-buru meminta Pak Joko untuk menuju kemari sepulang sekolah tadi, sampai aku harus berganti baju di toilet sekolah. Seharian lidahku terasa pahit mengingat tadi pagi aku kesal pada Gema hanya karena hal sepele. Betapa bodohnya.
 
@@ -109,7 +109,7 @@ Gema tidak menjawab. Ketika kutolehkan wajahku, dia tampak sedang tenggelam dala
 
 "Anya tadi mengajakku bicara duluan," jawabnya singkat. "Dia masih tidak bisa mengingat aku sepenuhnya, tapi setidaknya aku ada di depan matanya."
 
-"*Really?* Berarti ini berita bagus, dong. Kenapa wajahmu murung?"
+"*Really?* Berarti ini berita bagus, *dong*. Kenapa wajahmu murung?"
 
 "Aku tidak murung, Tika. Aku hanya sedang berpikir bagaimana aku harus menangani Kevin," jawabnya.
 

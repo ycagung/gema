@@ -11,10 +11,14 @@
             "id": "df5656388a269444",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {},
+              "type": "markdown",
+              "state": {
+                "file": "Story/Chapter 10.md",
+                "mode": "source",
+                "source": true
+              },
               "icon": "lucide-file",
-              "title": "New tab"
+              "title": "Chapter 10"
             }
           }
         ]
@@ -76,7 +80,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 200
+    "width": 251.75
   },
   "right": {
     "id": "844a768bc2e0edaa",
@@ -178,8 +182,34 @@
       "bases:Create new base": false
     }
   },
-  "active": "c44fd4ddc1ccf84a",
+  "active": "df5656388a269444",
   "lastOpenFiles": [
+    "Story/Chapter 9.md",
+    "Story/Chapter 8.md",
+    "Story/Chapter 27.md",
+    "Story/Chapter 20.md",
+    "Story/Chapter 26.md",
+    "Story/Chapter 7.md",
+    "Story/Chapter 6.md",
+    "Story/Chapter 5.md",
+    "Story/Chapter 4.md",
+    "Story/Chapter 3.md",
+    "Story/Chapter 2.md",
+    "Story/Chapter 1.md",
+    "Story/Chapter 25.md",
+    "Story/Chapter 24.md",
+    "Story/Chapter 23.md",
+    "Story/Chapter 22.md",
+    "Story/Chapter 21.md",
+    "Story/Chapter 19.md",
+    "Story/Chapter 18.md",
+    "Story/Chapter 17.md",
+    "Story/Chapter 16.md",
+    "Story/Chapter 15.md",
+    "Story/Chapter 14.md",
+    "Story/Chapter 13.md",
+    "Story/Chapter 12.md",
+    "Story/Chapter 11.md",
     "Illustrations/Kartika/1719365712.png",
     "Illustrations/Kartika/1182162753.png",
     "Illustrations/Kartika/508088947.png",
@@ -190,34 +220,8 @@
     "Illustrations/Kartika/3513573701.png",
     "Illustrations/Kartika/3306530092.png",
     "Illustrations/Kartika/203347272896.png",
-    "Illustrations/Kartika/202659598135.png",
-    "Story (Eng)/Arc 3 - Chapter 3.md",
-    "Story/Chapter (unkown).md",
     "Illustrations/Kartika",
     "Illustrations",
-    "Story (Eng)/Chapter 3.md",
-    "Story (Eng)/Chapter 2.md",
-    "Story (Eng)/Chapter 1.md",
-    "Story/Chapter 15.md",
-    "Story/Chapter 16.md",
-    "Story/Chapter 17.md",
-    "Story (Eng)/Arc 3 - Chapter 2.md",
-    "Story (Eng)/Arc 3 - Chapter 1.md",
-    "Story/Chapter 19.md",
-    "Story/Chapter 2.md",
-    "Story/Chapter 8.md",
-    "Story/Chapter 13.md",
-    "Story/Chapter 11.md",
-    "Story/Chapter 5.md",
-    "Story/Chapter 1.md",
-    "Story/Chapter 14.md",
-    "Story/Chapter 3.md",
-    "Story/Chapter 6.md",
-    "Story/Chapter 4.md",
-    "Story/Chapter 18.md",
-    "Story/Chapter 12.md",
-    "Story/Chapter 10.5.md",
-    "Story/Chapter 10.md",
     "Story (Eng)"
   ]
 }

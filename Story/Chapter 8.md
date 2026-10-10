@@ -1,6 +1,7 @@
 ---
 tags:
   - chapter
+title: Milikku
 ---
 # Chapter 8 - Milikku
 
@@ -8,7 +9,7 @@ tags:
 
 **Kevin**
 ---
-Bel pulang sekolah sudah berbunyi lima belas menit lalu. Anya sudah berjanji akan berjalan pulang denganku, kebetulan rumah kami tak terpaut terlalu jauh. Jadi di sinilah aku, menunggu Anya di gerbang sekolah. Pandangan mataku terjatuh ke jendela sebuah ruangan di lantai tiga. *Laboratorium biologi.* Tempat yang sering dipakai untuk rapat OSIS karena cukup luas dan nyaman. Tempatku pertama kali bertemu Anya tujuh bulan lalu, ketika aku masih kelas sebelas dan Anya kelas sepuluh.
+Bel pulang sekolah sudah berbunyi lima belas menit lalu. Anya sudah berjanji akan berjalan pulang denganku, kebetulan rumah kami tak terpaut terlalu jauh. Jadi di sinilah aku, menunggu Anya di gerbang sekolah. Pandangan mataku terjatuh ke jendela sebiuah ruangan di lantai tiga. *Laboratorium biologi.* Tempat yang sering dipakai untuk rapat OSIS karena cukup luas dan nyaman. Tempatku pertama kali bertemu Anya tujuh bulan lalu, ketika aku masih kelas sebelas dan Anya kelas sepuluh.
 
 ---
 

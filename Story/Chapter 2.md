@@ -11,7 +11,7 @@ title: Disorientasi
 ---
 "Gem, bangun. Waktunya sekolah, Gem..." Suara itu terdengar sangat familier. Suara yang sudah sangat lama tidak kudengar. 
 
-"Gem, ayo. Ini hari Senin, nanti kamu terlambat." Ya benar, itu suara ibuku. Badanku langsung terjengkat bangkit. Kupandangi wajah ibuku yang agak terkaget karena aku tiba-tiba terduduk. Tiba-tiba setetes air menitik dari ujung mataku. Aku tidak bisa berkata apa-apa. 
+"Gem, ayo. Ini hari Selasa, nanti kamu terlambat." Ya benar, itu suara ibuku. Badanku langsung terjengkat bangkit. Kupandangi wajah ibuku yang agak terkaget karena aku tiba-tiba terduduk. Tiba-tiba setetes air menitik dari ujung mataku. Aku tidak bisa berkata apa-apa. 
 
 "Gem, kamu kenapa? Kenapa menangis?" tanya ibuku khawatir.
 
@@ -92,5 +92,7 @@ Bu Karin agak tercengang. Aku selalu jadi siswa yang pintar matematika --karena 
 "Ehem, Gema benar. Jadi seperti itu anak-anak..." Bu Karin melanjutkan ajarannya. Tepat pada saat itu aku sadar sebuah fakta yang sangat krusial. 
 
 *Aku datang dari masa depan. Badanku memang masih remaja, tapi pengetahuan, kemampuan, dan pengalamanku lebih dekat perbandingannya dengan seorang profesor daripada mahasiswa. Ini... bisa kugunakan, sangat bisa. Bitcoin! Apple! Machine Learning! Aku bisa kaya!. Tuhan! Aku bahkan masih ingat original paper untuk transformer model!*
+
+*Persetan cara hidupku yang dulu. Aku terlalu banyak menahan diri hanya untuk melakukan apa yang orang lain anggap benar. Akan kutemukan jalanku sendiri.*
 
 *Oh, shit.* Umpatku dalam hati. Satu-satunya umpatanku yang tidak bermakna negatif hari ini.

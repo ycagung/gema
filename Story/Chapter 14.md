@@ -61,9 +61,9 @@ Mengikuti kata Bu Karin, Anya berdiri lebih dulu. "Selamat siang, saya Anya dari
 
 Aku berdiri. "Selamat siang, saya Gema dari 11C," ucapku dengan percaya diri. Aku mendengar bisikan kakak kelas yang duduk dekatku. *Pacarnya Kartika, kan?* 
 
-Setelah aku duduk, salah satu kakak kelas di belakangku berdiri. "Saya Christie, dari 9A."
+Setelah aku duduk, salah satu kakak kelas di belakangku berdiri. "Saya Christie, dari 12A."
 
-Lalu dilanjutkan dengan sebelahnya. "Saya Galih, dari 9B."
+Lalu dilanjutkan dengan sebelahnya. "Saya Galih, dari 12B."
 
 "Bagus, sekarang kalian bertukar tempat duduk. Gema dengan Christie, Anya dengan Galih. Ibu akan membagikan soal latihan tahap pertama. Kalian kerjakan bersama dengan teman sebangku kalian. Kita akan melatih kerja sama tim kita."
 
@@ -115,7 +115,7 @@ G: *I know, I know. Anya baik-baik saja. Aku bisa mengatur jarakku supaya tidak 
 
 Bagus. Memang harusnya kamu tidak terlalu dekat.
 
-G: *Aku tadi lebih banyak duduk dengan Christie, anak 9A.*
+G: *Aku tadi lebih banyak duduk dengan Christie, anak 12A.*
 
 K: *Christie? Ah, the smart and cute one. Dia ikut olimpiade juga tahun lalu.*
 

@@ -47,7 +47,7 @@ Dia berjalan perlahan ke arah bangkuku, atau lebih tepatnya ke arah bangkunya. E
 
 ---
 
-Aku sedikit tersentak ketika sadar dari lamunanku. Sepertinya otakku memutuskan untuk pergi dan berjalan-jalan ke masa lalu yang sangat jauh sekali. Lucunya adalah aku sekarang sedang duduk di tempat yang sama seperti di memori itu. Lalu sudut mataku menangkap Anya memasukin pintu ruang kelas. *Ah, ini punchline kedua.* Anya berjalan ke arah bangkunya di belakangku.
+Aku sedikit tersentak ketika sadar dari lamunanku. Sepertinya otakku memutuskan untuk pergi dan berjalan-jalan ke masa lalu yang sangat jauh sekali sampai ke kehidupanku yang dulu. Lucunya adalah aku sekarang sedang duduk di tempat yang sama seperti di memori itu. Lalu sudut mataku menangkap Anya memasukin pintu ruang kelas. *Ah, ini punchline kedua.* Anya berjalan ke arah bangkunya di belakangku.
 
 "*Morning, princess,*" sapaku ringan ketika dia hampir melewatiku. Tapi mataku langsung melebar.
 
@@ -95,7 +95,7 @@ Setelah satu detik penuh, semua orang di dalam kelas bersorak.
 
 Aku mengangguk karena mulutku penuh bakso. "Di *software house* milik Pak Andrew," jawabku setelah menelan bakso. "Sudahlah, itu tidak penting. Aku hanya butuh uangnya agar rencanaku berjalan lancar. Lagipula, aku memacari anak terkaya satu sekolah. Setidaknya aku harus punya pekerjaan."
 
-Kartika tertawa terbahak-bahak. "*No offense, but, you sound like my dad,*" ujarnya di tengah tawa. "Kamu yakin umurmu tiga belas?"
+Kartika tertawa terbahak-bahak. "*No offense, but, you sound like my dad,*" ujarnya di tengah tawa. "Kamu yakin umurmu enam belas?"
 
 Alisku berdenyut. Anak kecil ini cukup lihai menghina orang ternyata. "*Offense taken,*" jawabku sambil menusuk salah satu bakso di mangkuknya dan memasukkannya ke mulutku. "Omong-omong kamu sudah membuka kado dariku?"
 

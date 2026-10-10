@@ -65,7 +65,7 @@ Tapi yang paling menggangguku adalah kata-katanya ketika pulang sekolah, sebelum
 
 ---
 
-"Kamu diundang ke acara ulang tahun Jenna kelas 9B nanti sore, kan?" tanya Gema.
+"Kamu diundang ke acara ulang tahun Jenna kelas 12B nanti sore, kan?" tanya Gema.
 
 "Kak Jenna, Gem. Kamu tahu dari mana?" tanyaku balik sambil mengangkat alis.
 

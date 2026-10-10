@@ -35,7 +35,7 @@ Aku beranjak pergi dari ruang tamu dan kembali ke kamarku.
 
 Tidak banyak yang bisa kulakukan di kamar sederhana ini. Hanya ada satu meja belajar, kasur, dan lemari baju. Kupandangi langit-langit putih kamarku sambil berbaring di kasur. Kuingat lagi rencanaku tadi siang di sekolah. Prioritas pertamaku adalah untuk mendapatkan sebuah komputer, lalu internet. Tanpa keduanya aku tidak akan bisa melakukan apa-apa. Pada dasarnya, aku punya tiga puluh tahun *cheat code* yang tidak akan berguna tanpa dua hal itu.
 
-Aku bangun dari kasur dan membuka kotak origamiku di meja belajar. *Biasanya pukul sekian aku bermain dengan anak-anakku atau bertengkar dengan istriku. Atau keduanya. Sekarang jadi terasa sepi.*
+Aku bangun dari kasur dan membuka kotak origamiku di meja belajar. *Biasanya pukul sekian aku duduk melamun di teras atau bertengkar dengan istriku. Atau keduanya. Sekarang jadi terasa sepi.*
 
 "Gema."
 
