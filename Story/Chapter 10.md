@@ -97,7 +97,7 @@ Dia tidak langsung menjawab. Dia hanya menatapku dengan pandangan yang tidak bis
 
 Kali ini aku memilih untuk mengikat rambutku dengan gaya sanggul modern. Semua undangan harus bisa melihat anting pemberian Gema yang kupakai, terutama Anya dan Kevin. Kupilih gaun putih polos *off-shoulder* dengan rok yang sedikit di bawah lutut. Harusnya ini tidak berlebihan, yang berulang tahun harus jadi yang paling cantik. 
 
-Sekitar tiga puluh menit kemudian, aku turun dari mobilku di area *drop-off* depan hotel JW Marriott. Dia adalah anak tunggal dari seorang pemilik merk kosmetik yang sekarang sedang naik daun di Indonesia. Pantaslah jika orang tuanya mau membuat acara semewah ini hanya untuk ulang tahun Jenna yang ke-13. 
+Sekitar tiga puluh menit kemudian, aku turun dari mobilku di area *drop-off* depan hotel JW Marriott. Dia adalah anak tunggal dari seorang pemilik merk kosmetik yang sekarang sedang naik daun di Indonesia. Pantaslah jika orang tuanya mau membuat acara semewah ini hanya untuk ulang tahun Jenna yang ke-18. Yang ke-17 tahun lalu malah lebih mewah lagi.
 
 "Kartika! Kamu datang! *As beautiful as ever.*" sapa Jenna yang langsung tahu ketika aku masuk ke restoran tempat acaranya. Dia mengenakan gaun tanpa lengan berwarna merah jambu dengan rambut yang diurai dan sepasang *high-heels.* 
 

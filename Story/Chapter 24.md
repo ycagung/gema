@@ -162,7 +162,7 @@ Dua menit kemudian, aku sudah duduk di depan komputer yang dimaksud. Kevin kumin
 
 Sebetulnya bukan apa-apa. Dia boleh-boleh saja menemaniku. Tapi firasatku mengatakan dia tidak menceritakan semuanya padaku. Gerak-geriknya menandakan ada yang dia sembunyikan. Aku tidak suka orang seperti itu.
 
-Tapi setelah menekan *mouse* dan *keyboard* beberapa saat saja aku sudah bisa menyimpulkan kalau komputer ini sungguh-sungguh kosong. Seperti tidak pernah digunakan. *Recycle bin* juga kosong. Kukeluarkan *flash drive* dari kantongku dan kucoba meng-*install* *Recuva* di komputer ini. 
+Tapi setelah menekan *mouse* dan *keyboard* beberapa saat saja aku sudah bisa menyimpulkan kalau komputer ini sungguh-sungguh kosong. Seperti tidak pernah digunakan. *Recycle bin* juga kosong. Kukeluarkan *flash drive* dari kantongku dan kucoba menjalankan *Recuva* di komputer ini. 
 
 *File scan in progress. 0%.*
 

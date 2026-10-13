@@ -45,13 +45,13 @@ Aku diam sejenak, menimbang-nimbang seberapa banyak yang harus kusampaikan. "Kam
 
 Pertanyaanku membuat matanya sedikit bersinar. "*You can do that? Show me of course!*"
 
-Tak sampai lima menit kemudian, aku dan Tika sudah duduk di ruang komputer. Tanganku bergerak cepat di atas keyboard seperti biasanya. 
+Tak sampai lima menit kemudian, aku dan Tika sudah duduk di ruang komputer. Kucuri *webcam* di komputer Pak Andrew dan kutancapkan *flash drive*-ku. Lalu tanganku bergerak cepat di atas keyboard seperti biasanya. 
 
 "*Bear with me for ten minutes,*" ujarku tanpa menoleh. Baris demi baris kode tertulis tanpa jeda, *file* demi *file* tercipta dan tepat sepuluh menit kemudian aku menjalankan program itu dan jendela kamera muncul di layar komputer, menampakkan wajahku dan Tika. Di ujung kanan bawah tertulis "*Detected 2 individuals*". Ada 2 kotak yang memagari dan mengikuti kemana wajah kami bergerak. "Coba tersenyum," kataku. Tika memasang senyum manisnya dan kotak di sekitar wajahnya berubah menjadi warna hijau dengan tulisan "*Smiling*" di bawahnya. Dia mecoba mengerutkan wajahnya dan tulisan itu berubah menjadi "*Frowning*".
 
 "*Holy sh-! This is so cool! You built this in ten minutes?!*" serunya sambil mencoba-coba memasang ekspresi lain. Suaranya jadi lucu, membuatku tertawa terbahak-bahak. "*What else can you do?!* Ini uang, Gema! Uang!"
 
-"Kamu sudah sekaya itu dan masih mata duitan?" sanggahku sambil setengah tertawa.
+"Kamu sudah sekaya itu dan masih mata duitan?" Sanggahku sambil setengah tertawa.
 
 "Apa maksudmu? Menurutmu orang kaya seperti ayahku hanya duduk diam saja?"
 

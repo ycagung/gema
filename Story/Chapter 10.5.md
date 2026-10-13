@@ -30,3 +30,11 @@ Vincent berhenti tiba-tiba. Aku menyilangkan tanganku dan hanya bisa berkata, "S
 Aku tersenyum, "Terima kasih, Vincent."
 
 Di komputerku aku menulis: *Gaji: Rp 4.500.000,- | Bonus: Rp 12.000.000,- | Total: 16.500.000,-*
+
+---
+
+**Gema**
+---
+Aku berjalan keluar dari toko emas, dengan satu tangan memegang bingkisan putih berisi kotak hitam. Satu tangan lagi langsung melambai pada taksi terdekat.
+
+"Dua juta setengah untuk sepasang anting. Untuk orang yang baru kukenal sebulan," gumamku sambil menggelengkan kepala. "*End always justifies the means.*"

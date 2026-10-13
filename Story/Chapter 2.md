@@ -11,7 +11,7 @@ title: Disorientasi
 ---
 "Gem, bangun. Waktunya sekolah, Gem..." Suara itu terdengar sangat familier. Suara yang sudah sangat lama tidak kudengar. 
 
-"Gem, ayo. Ini hari Selasa, nanti kamu terlambat." Ya benar, itu suara ibuku. Badanku langsung terjengkat bangkit. Kupandangi wajah ibuku yang agak terkaget karena aku tiba-tiba terduduk. Tiba-tiba setetes air menitik dari ujung mataku. Aku tidak bisa berkata apa-apa. 
+"Gem, ayo. Ini hari Senin, nanti kamu terlambat." Ya benar, itu suara ibuku. Badanku langsung terjengkat bangkit. Kupandangi wajah ibuku yang agak terkaget karena aku tiba-tiba terduduk. Tiba-tiba setetes air menitik dari ujung mataku. Aku tidak bisa berkata apa-apa. 
 
 "Gem, kamu kenapa? Kenapa menangis?" tanya ibuku khawatir.
 
@@ -31,7 +31,7 @@ Aku turun dari kasur dan berjalan perlahan keluar kamar. Harum masakan ibuku sem
 
 "Bu, ini tanggal berapa?" Suaraku terdengar kecil. Aku tidak merasa memiliki suara semacam ini, ini... suara anak menjelang remaja. Lalu terlihatlah wajahku di cermin kecil, tenggorokanku langsung tersedak angin kosong.
 
-"29 Juni, Gem. Kenapa?" Ibu menjawab, tapi tidak terdengan olehku. Aku sibuk mendekati cermin, meraba pipiku, dahiku, rambutku. Wajahku kembali seperti waktu aku baru masuk SMA. 
+"28 Juni, Gem. Kenapa?" Ibu menjawab, tapi tidak terdengan olehku. Aku sibuk mendekati cermin, meraba pipiku, dahiku, rambutku. Wajahku kembali seperti waktu aku baru masuk SMA. 
 
 "Gem... Kamu sedang apa? Jerawatan?" tanya ibu lagi, membuatku terkaget.
 
