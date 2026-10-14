@@ -2,9 +2,9 @@
 tags:
   - chapter
 title:
-  - Persimpangan
+  - Dripping Blood
 ---
-# Chapter 28 - Persimpangan
+# Chapter 28 - *Dripping Blood*
 
 ---
 
@@ -92,7 +92,7 @@ Ketika dia pada akhirnya mengatakan bahwa semua bukti sudah ada di Pak Andrew, a
 
 Semua sudah berakhir. Guru-guru sudah tahu, aku tidak bisa mengelak lagi. Bahkan Anya pun tidak akan berguna. Gema yang memastikan itu. Sekarang aku tinggal menunggu dihabisi oleh ayahku sendiri. 
 
-"Siapa yang memintamu menumbalkan Anya?" Tanyanya dengan nada yang masih sama dinginnya.
+Lalu dia bertanya dengan nada sedingin es siapa yang memintaku menumbalkan Anya.
 
 Mungkin Gema duluan yang akan menghabisiku sebelum ayah. Aku... Takut. Ke mana lagi aku harus meminta tolong. Tidak adakah guru yang lewat sini untuk menghentikan Gema?
 
@@ -100,6 +100,59 @@ Mungkin Gema duluan yang akan menghabisiku sebelum ayah. Aku... Takut. Ke mana l
 
 Tapi tidak terjadi apa-apa. Ketika aku memberanikan diri membuka mataku, dia sedang berusaha menghubungi seseorang. Lalu dia berdiri dan melihatku. Tangan kanannya masih meneteskan darah.
 
-"Bersihkan wajahmu yang menjijikan itu. Ikut aku."
+"Bersihkan wajahmu yang menjijikkan itu. Ikut aku."
 
 ---
+
+**Anya**
+---
+Aku jarang kemari, jadi dinding-dinding putih UKS ini terasa asing. Tapi sepertinya dua orang di depanku tidak akan mempedulikan dinding. Mereka sibuk berdebat. Aku hanya bisa duduk di bangku di ujung ruangan. Memperhatikan Gema yang duduk di kasur dengan tangan kanan dibungkus perban yang sudah mulai memerah dan Tika yang berkacak pinggang di depannya. 
+
+"*I was late for one second and what? You punched a wall until your skin rips itself off? Who do you think you are? Superman?*"
+
+"*It was a pillar-*"
+
+"*NOT THE POINT!"
+
+Yap, Tika marah besar. Dia tidak pakai bahasa Indonesia sama sekali. Gema mungkin tidak akan selamat hari ini. 
+
+Sejujurnya aku juga sangat kaget. Aku baru saja tiba di sekolah dengan Tika ketika Jonas tiba-tiba berlari ke arahku dan bilang kalau Gema dan Kak Kevin sedang di ruang guru. Bersama semua guru di sekolah. Jantungku langsung berdegap kencang, aku akan diadili. 
+
+Tika langsung pergi dan berjalan ke arah ruang guru tanpa berkata apa-apa, aku refleks mengikuti. Wajahnya memerah dan nafasnya memendek. Aku ingin bertanya apakah dia mengkhawatirkan Gema tapi pikiranku sendiri juga campur aduk. Gema bilang semuanya akan baik-baik saja tadi malam, tidak ada yang perlu dikhawatirkan. Tapi mana bisa aku berpikir seperti itu kalau nyatanya sekarang dia mungkin ada di tengah sidang para guru bersama Kak Kevin. Aku tidak tahu apa yang akan dia lakukan.
+
+Lalu kami sampai di lantai dua, ruang guru hanya sepuluh meter lagi di depan. Tika tidak memperlambat langkahnya sama sekali, sampai satu siluet siswa keluar dari pintu yang kami tuju. Gema, raut wajahnya jarang kulihat, mungkin karena dia lebih sering tersenyum di depanku. Kali ini wajahnya seperti orang yang tidak punya emosi sama sekali. Tika hampir berhenti dan menenangkan diri sampai kami berdua melihat ada yang menetes dari tangan kanan Gema. Apa itu?
+
+Darah? Kepalan tangannya merah sekali.
+
+Tiba-tiba Tika hilang dari sampingku. Dia berlari sekencang-kencangnya menuju Gema. Aku tidak mendengar dengan jelas apa yang dia katakan padanya. Yang jelas dia langsung menarik Gema pergi. 
+
+Dan di sinilah kami sekarang. Tika masih belum berhenti mengomel.
+
+"*You've never this reckless. What was in your mind, huh? What were you punching the wall for anyway?*"
+
+"*It's better the wall than his face.*" Hmm? Apa maksudnya? "Sudahlah. Semuanya sudah berlalu. Guru-guru sudah tahu kalau Anya tidak bersalah. Kevin sudah mendapatkan hukumannya. Apa lagi yang mau dibahas? Tangan ini juga nanti akan sembuh sendiri."
+
+"*Oh! You think you're so-*"
+
+"Wajah siapa, Gema?" Aku tidak bisa menahan rasa ingin tahuku, omongan Tika langsung kupotong. Tika tiba-tiba menoleh seperti baru tahu kalau aku ada di sini.
+
+"Kevin," jawabnya singkat sambil menatapku.
+
+"*Why?*" Tanyaku lirih. Aku tahu Kak Kevin bermaksud jahat, tapi... Memangnya Gema sampai se-emosi itu? Kenapa?
+
+Dia tidak menjawab. Matanya hanya menatapku dengan ekspresi yang tidak bisa kumengerti. Bukan sedih. Bukan iba. Entahlah.
+
+Lalu dia memalingkan wajahnya dan menunduk. 
+
+"Dia mengatakan hal yang salah, itu saja. Sudah kubilang padamu kalau aku bukan orang baik, Anya."
+
+---
+
+Bel pulang sekolah berbunyi. Aku masih duduk terdiam melamun melihat ke luar jendela. Dua hari ini emosiku dikuras habis dengan segala peristiwa yang terjadi. Dan yang paling parah adalah aku hanya mengerti setengahnya, mungkin juga kurang dari itu. Aku tidak tahu sama sekali tentang niat jelek Kak Kevin. Aku pun tidak bertanya apa yang kutandatangani. Dan sekarang aku tidak tahu apa yang terjadi di ruang guru tadi.
+
+Tapi walaupun hanya sebagian, aku yang tidak sepintar Gema inipun bisa menyimpulkan kalau ini masalah yang harusnya sangat-sangat besar. Harusnya aku jatuh sangat-sangat dalam sekarang. 
+
+Tapi apa? Aku harus percaya begitu saja waktu Gema bilang ini semua sudah selesai? Tanpa ada konsekuensi satupun? Bahkan tidak ada satupun guru yang memanggilku untuk menjelaskan? Ada apa dengan orang-orang ini? Kemarin aku dibohongi dan sekarang aku dibiarkan tanpa penjelasan?
+
+Aku harus melakukan sesuatu.
+

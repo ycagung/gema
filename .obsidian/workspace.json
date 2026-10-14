@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Story/Chapter 28.md",
+                "file": "Story/Chapter 29.md",
                 "mode": "source",
-                "source": true
+                "source": false
               },
               "icon": "lucide-file",
-              "title": "Chapter 28"
+              "title": "Chapter 29"
             }
           }
         ]
@@ -184,17 +184,20 @@
   },
   "active": "df5656388a269444",
   "lastOpenFiles": [
+    "Story/Chapter 28.md",
+    "Story/Chapter 29.md",
+    "Story/Chapter 26.md",
+    "Story/Chapter 27.md",
+    "Story/Chapter 24.md",
+    "Story/Chapter 25.md",
     "Story/Chapter 18.md",
     "Story/Chapter 19.md",
     "Story/Chapter 20.md",
     "Story/Chapter 21.md",
     "Story/Chapter 22.md",
     "Story/Chapter 23.md",
-    "Story/Chapter 24.md",
     "Story/Chapter 17.md",
     "Story/Chapter 15.md",
-    "Story/Chapter 27.md",
-    "Story/Chapter 28.md",
     "Story/Chapter 13.md",
     "Story/Chapter 12.md",
     "Story/Chapter 10.md",
@@ -203,13 +206,10 @@
     "Story/Chapter 7.md",
     "Story/Chapter 3.md",
     "Story/Chapter 2.md",
-    "Story/Chapter 25.md",
-    "Story/Chapter 26.md",
     "Story/Chapter 8.md",
     "Story/Chapter 11.md",
     "Story/Chapter 16.md",
     "Story/Chapter 14.md",
-    "Story/Chapter 6.md",
     "Illustrations/Kartika/1719365712.png",
     "Illustrations/Kartika/1182162753.png",
     "Illustrations/Kartika/508088947.png",
