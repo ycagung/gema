@@ -40,9 +40,9 @@ Mataku melihat ke dalam ruangan itu. Ternyata benar, Kak Kevin sedang beres-bere
 
 Kuperhatikan penampilannya dalam-dalam. Dia terlihat sangat-sangat berantakan. Seragamnya tidak tertata rapi. Rambutnya acak-acakan. Persis seperti waktu kemarin dia datang ke rumahku. Rasanya memang benar, dunianya baru saja diruntuhkan. Kasihan.
 
-"Kak," panggilku. Dia tersentak kaget dan menoleh padaku. Matanya... Matanya berubah seketika dari terkejut jadi teror untuk sekejap saja. Lalu dia menunduk, tangannya meletakkan buku yang dia pegang. 
+"Kak," panggilku. Dia tersentak kaget dan menoleh padaku. Matanya... Matanya berubah seketika dari terkejut jadi teror untuk sekejap saja. Lalu dia menunduk, tangannya meletakkan buku yang dia pegang. "Kamu... Dikeluarkan dari sekolah?"
 
-"Apa maumu?" Tanyanya pelan. 
+"Tidak. Mereka memberi hukuman yang lebih memalukan lagi. Aku dicopot dari jabatan ketua OSIS. Sekarang apa maumu?" 
 
 "A-aku..." 
 
@@ -69,6 +69,12 @@ Lalu dia menatapku. Matanya merah. Dia menangis? Tatapannya sangat-sangat menyed
 Dia menggeleng lemah. "Aku bahkan tidak ingat kenapa aku menginginkanmu."
 
 Darahku rasanya seperti didorong naik ke atas kepala. Tanganku langsung mengepal keras. Pandanganku mulai buram karena air mata. Dadaku terasa seperti ditekan, sesak sekali. Aku menyesal. Aku benar-benar menyesal. Tadi aku ingin jawaban, sekarang setelah aku mendapatkannya aku menyesal. Harusnya aku tidak usah bertanya kalau jawabannya juga hanya menyakitiku.
+
+Aku berjalan perlahan mendekati mejanya. Tanganku meraih kalung hitam yang masih terpasang di leherku. Dengan sekali hentakan, kulepas kalung itu dan kujatuhkan di atas meja.
+
+"Ambil ini kembali. Semua barang yang kamu berikan untukku akan kukirimkan kembali juga. Aku tidak mau melihatmu lagi."
+
+Dia hanya terdiam. Aku juga tidak mengharapkan jawaban apa pun. Jadi aku berputar hendak pergi dari sini.
 
 "Kalau aku tahu orang macam Gema itu sedang melindungimu, harusnya aku tidak usah menyentuhmu sama sekali."
 

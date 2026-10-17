@@ -86,7 +86,7 @@ Aku bersandar di sofa buluk favoritku. Pandanganku lalu berpaling ke plafon ruan
 
 Lalu hening. Aku kembali menerawang plafon, Tika diam saja. Mungkin dia sedang melihatku, aku tidak peduli. 
 
-Sampai mana tadi aku di kantor? Oh, iya, *codec*. Sebelum pulang tadi sempat kubaca lagi dokumentasi SILK dan CELT. Dua komponen yang pada 2012 nanti akan menjadi Opus. Aku sudah mengerti cara kerjanya dan harus bagaimana. Bisa kutulis ulang dalam sebulan kalau tidak ada halangan yang aneh-aneh. Tapi lagi-lagi masalahnya bukan di situ. Di mana aku bisa mendapatkan pengacara dengan spesialisasi teknologi yang mumpuni, coba? Lalu mau kubayar pakai apa juga? Iya, uang. Uangnya siapa? *Budget* dari investasi Tika pertama kemarin sudah terkunci. 
+Sampai mana tadi aku di kantor? Oh, iya, *codec*. Sebelum pulang tadi sempat kubaca lagi dokumentasi SILK dan CELT. Dua komponen yang pada 2012 nanti akan menjadi Opus. Aku sudah mengerti cara kerjanya dan harus bagaimana. Bisa kutulis ulang dalam sebulan kalau tidak ada halangan yang aneh-aneh. Tapi lagi-lagi masalahnya bukan di situ. Di mana aku bisa mendapatkan pengacara dengan spesialisasi teknologi yang mumpuni, coba? Lalu mau kubayar pakai apa juga? Iya, uang. Uangnya siapa? *Budget* dari investasi Tika pertama kemarin juga tidak sebanyak itu. Tidak bisa dihambur-hamburkan.
 
 Oh, iya. Ada tenaga kerja gratis yang bisa kuakses.
 
