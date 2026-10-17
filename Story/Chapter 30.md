@@ -69,3 +69,54 @@ Aduh! Mungkin kali ini aku yang tidak akan selamat. Merpatimu ini akan jatuh seb
 ---
 "HAH?! JADI KALIAN SELAMA INI BERPURA-PURA?!" 
 
+Aku dan Tika sama-sama menutup telinga sebelum gendangnya dipecahkan teriakan Anya. Tiga gelas teh di meja itu juga ikut bergetar. Kasihan, mereka tidak salah apa-apa. Untung ayah dan ibu sedang tidak di rumah. 
+
+Tapi yang bersangkutan tidak melanjutkan teriakannya. Sekarang dia malah mulai sesenggukan dan meneteskan air mata sambil melihat kami berdua.
+
+"Tapi kenapa? Kenapa harus serepot itu mengorbankan perasaan kalian untukku?" Tanyanya lirih sambil menunduk.
+
+"Karena cowok sok tahu di sebelahku ini bilang kalau itu bisa mengalihkan perhatian Kevin. Jadi kamu tidak perlu menghadapi tantrumnya terlalu banyak. Dan dia bisa bergerak bebas di belakang."
+
+"Aku tidak sok tahu. Aku **tahu**. Buktinya memang benar Kevin tidak akan tahu apa yang kulakukan kalau aku tidak memberitahunya. Lagipula, ternyata berada di dekatmu juga melindungiku dari tingkah aneh ayahnya."
+
+Anya mengangguk-angguk seperti anak kecil.
+
+"Iya tapi rencanamu itu terlalu rumit dan aneh. Anya, menurutmu orang macam apa yang membeli barang semacam ini hanya untuk sebuah 'rencana'?" Tanyanya ke Anya sambil menyingkapkan rambutnya, menampilkan sepasang anting bintang yang masih dipakainya setiap hari. 
+
+"*I know, I know, I'm good at giving gifts*," jawabku sombong.
+
+"Itu... Emas asli, Tika? Katanya kamu beli ini dengan uangmu sendiri, Gema?" Tanya Anya ke kami berdua.
+
+"Gema! Mana sertifikatnya? Kamu pasti masih simpan, kan?" Todong Tika tiba-tiba. Tangan kanannya sudah menengadah di depanku seperti orang menagih hutang. 
+
+"*What? Why? NO!* Kamu tahu itu sangat tidak sopan, kan?"
+
+"Si. Ni."
+
+Aku menghela nafas panjang. Suatu hari nanti, tekanan darahku sungguh-sungguh akan naik karena anak konglomerat satu ini. 
+
+Lalu aku berdiri dan mengambil sertifikat itu dari laci di kamarku. Kuserahkan pada Tika sebelum aku duduk lagi. Dia cepat-cepat membukanya, matanya bergerak membaca itu dari atas sampai bawah. Lalu dia melotot melihatku. Ekspresinya ada di antara "yang benar saja" dan "aku sangat terharu", aku tidak tahu yang mana. Dia langsung mendekap sertifikat itu di dadanya.
+
+"Mahal, ya? Sini aku mau lihat," pinta Anya.
+
+"Tidak!" Potong Tika. Sekarang ekspresinya berubah jadi seperti kucing yang melindungi mainannya. Anya pun kaget dan mundur lagi. "Y-yang ini biar aku saja yang tahu. Kamu tidak perlu, Anya. Lagipula, kan, kadonya untukku," ujarnya menyampaikan seribu alasan tidak masuk akal.
+
+"O-okeee... Aku tidak ikut-ikut." 
+
+Datanglah hal yang paling kubenci sepanjang dua hidupku. *Awkward silence*.
+
+"Tapi kalian berdua..." Lanjut Anya memecahkan keheningan. Bagus, Anya, lanjutkan. "Kalian yakin hanya berpura-pura?" 
+
+Oke, berhenti, Anya. Jangan dilanjutkan.
+
+"A-aku juga tidak tahu," jawab Tika. Masih mendekap sertifikat tidak penting itu di dadanya. Lalu matanya berpindah menatap mataku. Ah, sudah, berhentiiii... Jangan menatapku dengan mata kucing itu!
+
+"Kamu tidak tahu ini, Anya. Aku yakin Gema tidak cerita padamu. Tapi dua minggu lalu, sehari sebelum kalian ikut olimpiade, aku... semacam bilang kalau aku tidak menganggap ini palsu," tutur Tika.
+
+"Semacam? Kenapa semacam?" Tanya Anya.
+
+Aku menghela nafas. "Karena dia tidak bilang apapun. Dia mengomel kenapa aku membelikan anting yang terlalu mahal untuk dibeli anak SMA hanya untuk hadiah pacaran palsu. Tapi Tika tidak bohong. Aku saja yang... Tidak berada di posisi yang pantas."
+
+*Awkward silence*. Lagi. Aku mulai bisa mendengar otakku sendiri berputar.
+
+"Aku tidak tahu apa yang sesungguhnya terjadi di antara kalian berdua," ujar Anya. "Yang kutahu adalah kalian berdua sama-sama bohong."

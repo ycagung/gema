@@ -85,7 +85,7 @@ Lalu Gema memasang wajah puas dan tersenyum, seperti dia sedang melihat rekan ke
 
 "*You can come, y'know? As my plus one,*" ujarku dengan nada sedikit merayu. Entah dari mana.
 
-"*Like I said, I don't want to embarras you,*" ujarnya membuatku mendengus lagi. Kali ini aku tidak tahu pasti apa yang membuatku mendengus. "Kita akan punya panggung yang lebih besar lagi nanti, jangan khawatir. Setidaknya aku akan mengajakmu berdansa meskipun sekali. Hitung-hitung perayaan atas kerja sama kita."
+"*Like I said, I don't want to embarras you,*" ujarnya membuatku mendengus lagi. Kali ini aku tidak tahu pasti apa yang membuatku mendengus. "Kita akan punya panggung yang lebih besar lagi nanti, jangan khawatir."
 
 Kata-kata Gema yang entah dari mana itu membuatku terdiam. Hanya saja jantungku tidak bisa diam. Aku tidak tahu mengapa, tapi ada sesuatu yang membuat janji Gema barusan itu membawa makna yang tidak biasa. *Atau ini harapan? Ah, yang benar saja.* Dengan secepat mungkin aku menyadarkan diriku dan menatapnya balik.
 
