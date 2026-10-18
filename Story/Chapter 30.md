@@ -99,7 +99,7 @@ Lalu aku berdiri dan mengambil sertifikat itu dari laci di kamarku. Kuserahkan p
 
 "Mahal, ya? Sini aku mau lihat," pinta Anya.
 
-"Tidak!" Potong Tika. Sekarang ekspresinya berubah jadi seperti kucing yang melindungi mainannya. Anya pun kaget dan mundur lagi. "Y-yang ini biar aku saja yang tahu. Kamu tidak perlu, Anya. Lagipula, kan, kadonya untukku," ujarnya menyampaikan seribu alasan tidak masuk akal.
+"Tidak!" Potong Tika. Sekarang ekspresinya berubah jadi seperti kucing yang melindungi mainannya. Anya pun kaget dan mundur lagi. "Y-yang ini biar aku saja yang tahu. Kamu tidak perlu, Anya. Lagipula, kan, kadonya untukku," ujarnya menyampaikan seribu alasan tidak masuk akal. Jangan bilang dia jadi aneh begitu hanya karena anting dua setengah juta? Pasti barang-barangnya di rumah lebih mahal, kan?
 
 "O-okeee... Aku tidak ikut-ikut." 
 
