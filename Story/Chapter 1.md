@@ -9,7 +9,9 @@ title: Satu tambah satu sama dengan nol
 
 **Gema**
 ---
-Langit kelabu sudah biasa menjadi pertanda hujan akan turun, dan sepertinya kali ini bukan pengecualian. Dan sepertinya aku pun tidak salah ketika ada kilatan petir berkedip di kejauhan diiringi dentuman suaranya tiga detik kemudian. *"Tak apa, hujan atau tidak, aku tidak akan pulang cepat juga hari ini,"* batinku lagi. Aku memutar kursiku kembali menghadap meja dan komputerku, tidak menghiraukan harum bau tanah khas hujan yang mulai naik ke hidungku. Ponselku berdering, rupanya dari salah satu klien. Kutekan tombol "Terima" dan "Pengeras Suara" lalu kuletakkan di atas meja.
+Langit kelabu sudah biasa menjadi pertanda hujan akan turun, dan sepertinya kali ini bukan pengecualian. Dan sepertinya aku pun tidak salah ketika ada kilatan petir berkedip di kejauhan diiringi dentuman suaranya tiga detik kemudian. *"Tak apa, hujan atau tidak, aku tidak akan pulang cepat juga hari ini,"* batinku lagi. Aku memutar kursiku kembali menghadap meja dan komputerku, tidak menghiraukan harum bau tanah khas hujan yang mulai naik ke hidungku. 
+
+Ponselku berdering, rupanya dari salah satu klien. Kutekan tombol "Terima" dan "Pengeras Suara" lalu kuletakkan di atas meja.
 
 "Selamat sore, Pak Leo. Ada yang bisa saya bantu?" ujarku memulai pembicaraan.
 
