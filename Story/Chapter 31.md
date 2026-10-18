@@ -7,63 +7,85 @@ title:
 
 ---
 
-**Gema**
+**Fiona**
 ---
-"Kalian berdua sama-sama bohong."
+Kakiku melangkah tergesa-gesa menyusuri koridor. Tanganku mendekap beberapa buku tebal karena tas kecilku sudah tidak cukup lagi. Rambutku yang terkuncir asal bergoyang mengikuti irama langkahku yang sama tidak tentunya. Kulirik sekilas jam tanganku, pukul 08:05. Aduh, aku terlambat lima menit. Semoga Pak Guntur juga terlambat. Tolong buat Pak Guntur terlambat, Tuhan.
 
-Kata-kata Anya itu membuatku dan Tika terdiam. Aku? Jelas sekali, tidak perlu ditanyakan. Ketika aku kembali ke masa ini, aku sudah tahu kalau aku akan membuat seribu kebohongan. Meskipun aku berusaha sebisa mungkin untuk menghindarinya, tapi tetap saja. 
+Ketika aku sampai di depan pintu kelas, terlihat dari jendela kaca bahwa Pak Guntur sudah mulai membuka buku dan berbicara. Kucondongkan badanku untuk mengetuk pintu itu dengan tanganku yang masih memegang buku. 
 
-Sedangkan Tika? Dia bohong apa? Oke, aku tahu kalau Tika **bisa** berbohong. Atau setidaknya memutar kenyataan seperti yang biasa kulakukan. Tapi aku tidak yakin kalau matanya berbohong waktu dia menemuiku di depan gang kala itu. 
+Perlahan kubuka pintu itu dan aku melangkah masuk dengan menunduk.
 
-Tapi aku percaya Anya. 
+"Ah, Fiona, terlambat seperti biasa. Cepat duduk sebelum saya mengurangi nilai kerapianmu."
 
-"Apa maksudmu, Anya?" Tanyaku.
+"B-baik, pak," jawabku sebelum melangkah ke belakang ruangan.
 
-"A-"
+---
 
-"Haloo. Oh, ada tamu," sapa ibu yang tiba-tiba masuk ke ruang tengah. Aku langsung berdiri dan mengambil tas dari tangan ibu, ternyata ayah masih melepas jas hujannya di teras.
+**Kartika**
+---
+"Iya, pak. Saya ijin tidak ke kantor hari ini," ujar Gema ke ponselnya. "Tidak. Saya ke Universitas Adikarya. Betul, dengan Tika. Iya, pak, betul, ini mengenai rencana yang saya sampaikan kemarin. Baik, terima kasih, pak."
 
-"Malam, tante," sapa Tika dengan senyumnya.
+Lalu dia menutup panggilan dan mengantongi ponselnya. 
 
-"Kenapa baru pulang? Bukannya ibadat sudah selesai satu jam lalu? Jadi kehujanan, kan?" Omelku sambil meletakkan tas ibu dan bergegas keluar membantu ayah.
+"Kamu lupa izin Pak Andrew?" Tanyaku sebelum langkah kami berdua memasuki lobi universitas.
 
-Ibu melambaikan tangannya, "Tadi masih mengobrol dengan yang lain, Gema. Tika sudah makan? Gema tidak cuma menyajikan air putih, kan?"
+"Iya. Aku kurang tidur kemarin," jawabnya sambil mengusap matanya. "Aku saja tidak ingat tadi di sekolah ada apa saja."
 
-"Sudah, tante. Tadi Gema buatkan teh, kok, tante. Oh, iya, ini kenalkan, teman sekelas Gema. Anya," jawabnya sambil menunjuk ke Anya yang mengangguk sopan.
+"Kenapa? Kamu ada banyak pekerjaan? *Roundtable* mulai membebanimu, ya?"
 
-"Lho, kamu anaknya Bu Leona, kan? Tante baru bertemu orang tuamu bulan lalu waktu pertemuan di gereja. Ternyata kamu sekelas dengan Gema? Bagaimana kabar ayah ibumu?"
+"Kurang lebih seperti itu," jawabnya sambil menguap.
 
-"Ah, iya, tante. Salam kenal," jawab Anya sambil mengangguk lagi. "Ayah ibu sehat, tante. Sekarang sedang ke luar kota."
+Tanganku menekan tombol 'naik' di elevator. "Gem, jangan memaksakan dirimu. *The last thing I want is you overworking yourself and got hospitalized.*"
 
-"Baguslah, baguslah. Tante masuk dulu, ya. Kalian mengobrol saja," ujar ibu sebelum berjalan ke belakang rumah. 
+"*You sound like my mother*."
 
-Ayah baru saja masuk dengan rambutnya yang masih basah. Matanya melihat dua perempuan yang sedang duduk di ruang tengahnya. Yang satu terlihat seperti supermodel, satu lagi terlihat seperti siswa teladan. 
+*Ding*. Elevator telah sampai dan pintu di depan kami terbuka. Aku tertawa sambil melangkah masuk bersamanya. Dan pintu itu menutup.
 
-"Halo, om," sapa Tika dan Anya. Ayah membalas dengan lambaian tangan.
+"Gem, kamu tidak merasa aneh?" Tanyaku. 
 
-Lalu dia mendekatiku dan berbisik.
+Sudah dua minggu berlalu semenjak kejadian Anya dan Kevin. Selama dua minggu itu juga tidak ada hal-hal yang istimewa. Aku masih sering ditraktir Gema makan bakso di kantin. Anya beberapa kali ikut. Ah, lucu, pertama kali dia ikut makan siang, wajahnya memerah entah karena kesal atau malu karena tidak bisa menolak Gema yang membayar semua makanannya. 
 
-"Ketahuan selingkuh? Aduh!"
+"Aneh apa?" Tanyanya balik.
 
-Aku meninju perutnya. Urat-urat di dahi dan leherku terasa ingin meletus. Kubalas dengan bisikan ke telinga ayah.
+Beberapa kali aku datang ke *Jukebox* untuk sekedar menengoknya bekerja dan membawakan cemilan untuk teman-teman yang lain. Tentu saja sudah tidak mengenakan atasan *low-cut*, kata Gema tidak pantas. Ah, iya juga, Kak Otis kulihat cukup gembira kalau aku datang. Mungkin karena makanan yang kubawa enak-enak. Haha. 
 
-"*Ga usah ngomong aneh-aneh, pak*. *Ndang ganti klambi ngkok masuk angin*."
+Semuanya normal. Seperti bulan lalu, seperti dua bulan lalu. Aku tetap pacarnya Gema.
 
-Dengan cengirannya, ayah berjalan masuk mengikuti ibu.
+"Kita berdua," jawabku.
 
-Aku duduk lagi di sebelah Tika.
+"Kita berdua kenapa? Kita baik-baik saja," tanyanya heran.
 
-"Gem, kenapa ibumu kenal ibuku?" Tanya Anya.
+*Ding*. Elevator sudah sampai. Pintunya terbuka dan kami melangkah keluar, menyusuri koridor yang lain lagi.
 
-"Ibuku pemazmur, sekaligus Ketua Seksi Liturgi. Aku saja kaget ternyata ibuku kenal orang tua Tika juga."
+"Justru itu. Hubungan kita, kan, hanya untuk mengalihkan perhatian Kevin saja. Harusnya setelah masalah Anya selesai, kita juga selesai."
 
-Tika mengangguk-angguk. Anya menjentikkan jari.
+"Kamu mau putus denganku?"
 
-"Ya ampun! Iya! Aku sering melihat ibumu di gereja! Tapi kenapa aku tidak pernah melihatmu?"
+Kakiku berhenti. Pertanyaan macam apa itu? Dia cuma menggodaku, kan? Ah, aku tidak bisa membedakan mana Gema yang bercanda mana yang bukan.
 
-"Iya, Gema. Kenapa?" Sahut Tika. 
+"Hei," panggilnya. Aku mendongak lagi, ternyata tadi aku refleks terdiam menunduk. "Buat apa kamu *overthinking* begitu? Ayo, jalan lagi," ujarnya. Aku mengangguk saja dan berjalan lagi.
 
-Aku bersiul-siul sambil membuang muka.
+"Aku sempat kepikiran itu," lanjutnya.
+
+"Oh, ya? Jadi kamu sebenarnya memang memikirkanku?" Tanyaku agak usil.
+
+"Mau kujitak? Kalau aku tidak memikirkanmu, buat apa kamu ada di hidupku? Dasar aneh. *Anyway*, aku juga sempat mempertanyakan hal yang sama. Tapi setelah kupikir-pikir lagi..."
+
+Tanganku terkatup di belakang dan aku mendekatkan wajahku pada wajahnya. "Setelah kamu pikir-pikir lagi? Ternyata kamu tidak mau lepas dariku, kan?"
+
+"Bukan. Aku tidak tahu bagaimana cara menjelaskan ke ayah ibuku kalau putus denganmu. Jadi, ya, sudah. *If it's not broken, don't fix it*. Kamu tidak keberatan, kan?"
+
+Aku terdiam. Dia pun diam juga setelah menjawab. Lalu kami tertawa terbahak-bahak sampai menepuk lutut.
+
+"*No, I don't mind at all. The next thing you know is you'd be head over heels for me.*"
+
+---
+
+"Bukannya kita harus ke kantor dekan?" Tanya Gema waktu kami berdua melewati ruangan dengan pintu besar bertuliskan "Dekan Senior".
+
+"Oh, aku tidak mau bertemu dengannya. Nanti dia bertingkah aneh sendiri melihatku datang. Dia tipe orang yang sangat kaku soal kasta," jawabku bergidik. Terakhir kali aku bertemu Pak Yulius sang dekan itu waktu peresmian gedung baru Adikarya tiga bulan lalu. Aku dibuatnya bergidik karena dia sangat mencari perhatian keluargaku. *I mean, what more can you ask? You're literally THE dean.*
+
+"Yang kamu cari itu soal paten dan kekayaan intelektual, kan? Kita ke Sentra HKI kalau begitu," jawabku sambil terus melangkah.
 
 ---
 
