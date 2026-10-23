@@ -9,9 +9,9 @@ title: Kejutan Dua Kali
 **Gema**
 ---
 *Played my part, kept you in the dark...*
-*Now let me-*
+*Now let me show you the-*
 
-Senandung dari mulutku yang sangat-sangat kunikmati di pagi yang sejuk dan sepi ini terpotong karena ada yang tiba-tiba menabrakku lalu melingkarkan tangannya di lenganku. 
+Senandung *Shape of My Heart*-nya *Backstreet Boys* dari mulutku yang sangat-sangat kunikmati di pagi yang sejuk dan sepi ini terpotong karena ada yang tiba-tiba menabrakku lalu melingkarkan tangannya di lenganku. Padahal ironi dari lagu tentang orang yang menyembunyikan siapa dia sesungguhnya dari pasangannya itu sangat-sangat indah. Dan lucu. Haha.
 
 "Aku tidak pernah mendengarmu bernyanyi," ujarnya. 
 
