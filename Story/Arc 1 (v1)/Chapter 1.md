@@ -1,6 +1,7 @@
 ---
 tags:
   - chapter
+  - v1
 title: Satu tambah satu sama dengan nol
 ---
 # Chapter 1 - Satu Tambah Satu Sama Dengan Nol
