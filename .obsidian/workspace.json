@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Story/Arc 1 (v2)/Chapter 3 (v2).md",
+                "file": "Story/Arc 1 (v2)/chapter 5 (v2).md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Chapter 3 (v2)"
+              "title": "chapter 5 (v2)"
             }
           }
         ]
@@ -33,12 +33,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Story/Arc 1 (v1)/Chapter 3.md",
+                "file": "Story/Arc 1 (v1)/Chapter 5.md",
                 "mode": "source",
-                "source": false
+                "source": true
               },
               "icon": "lucide-file",
-              "title": "Chapter 3"
+              "title": "Chapter 5"
             }
           }
         ]
@@ -204,10 +204,14 @@
   },
   "active": "df5656388a269444",
   "lastOpenFiles": [
-    "Story/Arc 1 (v2)/Chapter 2 (v2).md",
-    "Story/Arc 1 (v2)/Chapter 3 (v2).md",
-    "Story/Arc 1 (v2)/Chapter 1 (v2).md",
+    "Story/Arc 1 (v2)/Chapter 4 (v2).md",
+    "Story/Arc 1 (v2)/chapter 5 (v2).md",
+    "Story/Arc 1 (v1)/Chapter 5.md",
+    "Story/Arc 1 (v1)/Chapter 4.md",
     "Story/Arc 1 (v1)/Chapter 3.md",
+    "Story/Arc 1 (v2)/Chapter 3 (v2).md",
+    "Story/Arc 1 (v2)/Chapter 2 (v2).md",
+    "Story/Arc 1 (v2)/Chapter 1 (v2).md",
     "Story/Arc 1 (v1)/Chapter 2.md",
     "Story/Arc 1 (v1)/Chapter 1.md",
     "Story/Arc 1 (v1)/Chapter 30.5.md",
@@ -228,10 +232,6 @@
     "Story/Arc 1 (v1)/Chapter 21.md",
     "Story/Arc 1 (v1)/Chapter 29.md",
     "Story/Arc 1 (v1)/Chapter 26.md",
-    "Story/Arc 1 (v1)/Chapter 27.md",
-    "Story/Arc 1 (v1)/Chapter 28.md",
-    "Story/Arc 1 (v1)/Chapter 25.md",
-    "Story/Arc 1 (v1)/Chapter 24.md",
     "Illustrations/Kartika/1719365712.png",
     "Illustrations/Kartika/1182162753.png",
     "Illustrations/Kartika/508088947.png",
