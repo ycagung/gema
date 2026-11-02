@@ -14,11 +14,13 @@
               "type": "markdown",
               "state": {
                 "file": "Story/Arc 1 (v2)/Chapter 3 (v2).md",
+                "file": "Story/Arc 1 (v2)/Chapter 5 (v2).md",
                 "mode": "source",
-                "source": false
+                "source": true
               },
               "icon": "lucide-file",
               "title": "Chapter 3 (v2)"
+              "title": "Chapter 5 (v2)"
             }
           }
         ]
@@ -33,12 +35,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Story/Arc 1 (v1)/Chapter 5.md",
+                "file": "Story/Arc 1 (v1)/Chapter 6.md",
                 "mode": "source",
                 "source": true
               },
               "icon": "lucide-file",
-              "title": "Chapter 5"
+              "title": "Chapter 6"
             }
           }
         ]
@@ -207,40 +209,17 @@
     "Story/Arc 1 (v2)/Chapter 4 (v2).md",
     "Story/Arc 1 (v2)/Chapter 3 (v2).md",
     "Story/Arc 1 (v2)/Chapter 2 (v2).md",
-    "Story/Chapter 31.md",
-    "Illustrations/Kartika/2039912752.png",
-    "Illustrations/Kartika/1743098441.png",
+    "Story/Arc 1 (v1)/Chapter 29.md",
     "Illustrations/Kartika/1719365712.png",
     "Illustrations/Kartika/1182162753.png",
-    "Illustrations/Kartika/704338870.png",
-    "Illustrations/Kartika/675169612.png",
-    "Illustrations/Kartika/592087941.png",
     "Illustrations/Kartika/508088947.png",
     "Illustrations/Kartika/282526397.png",
     "Illustrations/Kartika/74415003.png",
-    "Story/Arc 1 (v2)/chapter 5 (v2).md",
-    "Story/Arc 1 (v1)/Chapter 5.md",
-    "Story/Arc 1 (v1)/Chapter 4.md",
-    "Story/Arc 1 (v1)/Chapter 3.md",
-    "Story/Arc 1 (v2)/Chapter 1 (v2).md",
-    "Story/Arc 1 (v1)/Chapter 2.md",
-    "Story/Arc 1 (v1)/Chapter 1.md",
-    "Story/Arc 1 (v1)/Chapter 30.5.md",
-    "Story/Arc 1 (v2)",
-    "Story/Arc 1 (v1)",
-    "Story/Arc 1 (v1)/Chapter 19.md",
-    "Story/Arc 1 (v1)/Chapter 20.md",
-    "Story/Arc 1 (v1)/Chapter 17.md",
-    "Story/Chapter 32.md",
-    "Story/Arc 1 (v1)/Chapter 30.md",
-    "Story/Arc 1 (v1)/Chapter 10.md",
-    "Story/Arc 1 (v1)/Chapter 9.md",
-    "Story/Arc 1 (v1)/Chapter 8.md",
-    "Story/Arc 1 (v1)/Chapter 7.md",
-    "Story/Arc 1 (v1)/Chapter 22.md",
-    "Story/Arc 1 (v1)/Chapter 23.md",
-    "Story/Arc 1 (v1)/Chapter 21.md",
-    "Story/Arc 1 (v1)/Chapter 29.md",
+    "Illustrations/Kartika/3187003399.png",
+    "Illustrations/Kartika/3289711082.png",
+    "Illustrations/Kartika/3513573701.png",
+    "Illustrations/Kartika/3306530092.png",
+    "Illustrations/Kartika/203347272896.png",
     "Illustrations/Kartika",
     "Illustrations",
     "Story (Eng)"
