@@ -1,46 +1,44 @@
 {
   "main": {
-    "id": "dfa4db0ee923d147",
+    "id": "9ba8e102ebecbc35",
     "type": "split",
     "children": [
       {
-        "id": "a07b78661fb637c2",
+        "id": "5835b3942c5f4183",
         "type": "tabs",
         "children": [
           {
-            "id": "df5656388a269444",
+            "id": "eed492355e4e8bb9",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
                 "file": "Story/Arc 1 (v2)/Chapter 3 (v2).md",
-                "file": "Story/Arc 1 (v2)/Chapter 5 (v2).md",
                 "mode": "source",
-                "source": true
+                "source": false
               },
               "icon": "lucide-file",
               "title": "Chapter 3 (v2)"
-              "title": "Chapter 5 (v2)"
             }
           }
         ]
       },
       {
-        "id": "2f38426a14b35673",
+        "id": "8a88b758abcd6452",
         "type": "tabs",
         "children": [
           {
-            "id": "2e6cdf8d14b06ed3",
+            "id": "6957134a12362c70",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Story/Arc 1 (v1)/Chapter 6.md",
+                "file": "Story/Arc 1 (v1)/Chapter 3.md",
                 "mode": "source",
                 "source": true
               },
               "icon": "lucide-file",
-              "title": "Chapter 6"
+              "title": "Chapter 3"
             }
           }
         ]
@@ -49,15 +47,15 @@
     "direction": "vertical"
   },
   "left": {
-    "id": "7ca3b208a9cbd594",
+    "id": "772f9676eae34b9e",
     "type": "split",
     "children": [
       {
-        "id": "4ecc229d971eb0d5",
+        "id": "460337ddd6d0de9d",
         "type": "tabs",
         "children": [
           {
-            "id": "c44fd4ddc1ccf84a",
+            "id": "86f4348b8d6e5d56",
             "type": "leaf",
             "state": {
               "type": "file-explorer",
@@ -72,7 +70,7 @@
             }
           },
           {
-            "id": "e38208e5d8d3a514",
+            "id": "90b3d7d741586764",
             "type": "leaf",
             "state": {
               "type": "search",
@@ -89,11 +87,14 @@
             }
           },
           {
-            "id": "6df2f8d56fc20c0a",
+            "id": "700eb4914598f3cd",
             "type": "leaf",
             "state": {
               "type": "bookmarks",
-              "state": {},
+              "state": {
+                "showSearch": false,
+                "searchQuery": ""
+              },
               "icon": "lucide-bookmark",
               "title": "Bookmarks"
             }
@@ -102,22 +103,23 @@
       }
     ],
     "direction": "horizontal",
-    "width": 251.75
+    "width": 300
   },
   "right": {
-    "id": "844a768bc2e0edaa",
+    "id": "3202e4d3823f09f0",
     "type": "split",
     "children": [
       {
-        "id": "398c9b13f3b5ed8a",
+        "id": "64ae6a42cc5b2e2e",
         "type": "tabs",
         "children": [
           {
-            "id": "866f40b7e12b1c1b",
+            "id": "ec1ff26b610cea8b",
             "type": "leaf",
             "state": {
               "type": "backlink",
               "state": {
+                "file": "Story/Arc 1 (v2)/Chapter 7 (v2).md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -131,11 +133,12 @@
             }
           },
           {
-            "id": "d49c96b8dbaa9004",
+            "id": "bae0bb54e9e0cde9",
             "type": "leaf",
             "state": {
               "type": "outgoing-link",
               "state": {
+                "file": "Story/Arc 1 (v2)/Chapter 7 (v2).md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
@@ -144,7 +147,7 @@
             }
           },
           {
-            "id": "e8e9a48706fafa67",
+            "id": "d676daa760687917",
             "type": "leaf",
             "state": {
               "type": "tag",
@@ -159,7 +162,7 @@
             }
           },
           {
-            "id": "5743d57bc8831b34",
+            "id": "e9baced05c393326",
             "type": "leaf",
             "state": {
               "type": "all-properties",
@@ -173,11 +176,12 @@
             }
           },
           {
-            "id": "c1a9655f5f7388b1",
+            "id": "aec1c86198863268",
             "type": "leaf",
             "state": {
               "type": "outline",
               "state": {
+                "file": "Story/Arc 1 (v2)/Chapter 7 (v2).md",
                 "followCursor": false,
                 "showSearch": false,
                 "searchQuery": ""
@@ -204,24 +208,32 @@
       "bases:Create new base": false
     }
   },
-  "active": "df5656388a269444",
+  "active": "eed492355e4e8bb9",
   "lastOpenFiles": [
+    "Story/Arc 1 (v2)/Chapter 14 (v2).md",
+    "Story/Arc 1 (v1)/Chapter 3.md",
+    "Story/Arc 1 (v1)/Chapter 13.md",
+    "Story/Arc 1 (v1)/Chapter 14.md",
+    "Story/Arc 1 (v1)/Chapter 12.md",
+    "Story/Arc 1 (v2)/Chapter 13 (v2).md",
+    "Story/Arc 1 (v2)/Chapter 9 (v2).md",
+    "Story/Arc 1 (v2)/Chapter 8 (v2).md",
+    "Story/Arc 1 (v1)/Chapter 11.md",
+    "Story/Arc 1 (v2)/Chapter 12 (v2).md",
+    "Story/Arc 1 (v2)/Chapter 11 (v2).md",
+    "Story/Arc 1 (v2)/Chapter 10 (v2).md",
+    "Story/Arc 1 (v1)/Chapter 10.md",
+    "Story/Arc 1 (v2)/Chapter 10.5 (v2).md",
+    "Story/Arc 1 (v1)/Chapter 10.5.md",
+    "Story/Arc 1 (v1)/Chapter 9.md",
+    "Story/Arc 1 (v1)/Chapter 8.md",
+    "Story/Arc 1 (v1)/Chapter 7.md",
+    "Story/Arc 1 (v2)/Chapter 7 (v2).md",
+    "Story/Arc 1 (v2)/Chapter 5 (v2).md",
     "Story/Arc 1 (v2)/Chapter 4 (v2).md",
     "Story/Arc 1 (v2)/Chapter 3 (v2).md",
+    "Story/Arc 1 (v2)/Chapter 1 (v2).md",
     "Story/Arc 1 (v2)/Chapter 2 (v2).md",
-    "Story/Arc 1 (v1)/Chapter 29.md",
-    "Illustrations/Kartika/1719365712.png",
-    "Illustrations/Kartika/1182162753.png",
-    "Illustrations/Kartika/508088947.png",
-    "Illustrations/Kartika/282526397.png",
-    "Illustrations/Kartika/74415003.png",
-    "Illustrations/Kartika/3187003399.png",
-    "Illustrations/Kartika/3289711082.png",
-    "Illustrations/Kartika/3513573701.png",
-    "Illustrations/Kartika/3306530092.png",
-    "Illustrations/Kartika/203347272896.png",
-    "Illustrations/Kartika",
-    "Illustrations",
-    "Story (Eng)"
+    "Story/Arc 1 (v2)/Chapter 6 (v2).md"
   ]
 }

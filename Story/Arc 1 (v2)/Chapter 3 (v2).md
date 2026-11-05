@@ -24,9 +24,29 @@ Bel pulang sekolah berbunyi. Semua bersorak gembira. Aku tetap diam.
 
 "Dasar manusia tertutup," gerutu Jonas. Lalu dia pergi meninggalkanku setelah kukibaskan tanganku ke arahnya.
 
+Dalam diam, aku menunduk meraih tali sepatu kananku. Kulonggarkan dan kutarik utasnya. Setelah mengukurnya dengan melingkarkannya di pergelangan tanganku, aku mengambil gunting dari tas dan memotongnya. 
+
+Lumayan, masih ada sisa jadi sepatuku tidak terlalu longgar. Kuangkat potongan tali sepatu itu. Tali sepatu yang lumayan baru karena seingatku ibu baru membelikan sepatu ini waktu aku naik kelas dua belas. Bentuknya pipih berwarna putih. *This will do*.
+
+Tanganku merogoh kantong samping tasku, di mana aku biasa menyimpan korek api karena aku mulai curi-curi kesempatan merokok dari kelas sebelas. Ah, masih ada. Kurogoh lagi, ada sisa rokok tidak, ya? Ternyata tidak ada. Sayang sekali.
+
+Dengan menyembunyikan kedua tanganku di bawah meja, aku membakar dua ujung potongan tali sepatu itu dan menyatukannya membentuk gelang. Aduh! Panas. Kutiup-tiup ujung jariku yang memerah setelah berhasil menyambungkannya. 
+
+Kupandangi gelang putih konyol itu. Mungkin ini kado teraneh yang dia terima hari ini. Tapi masa bodoh. Memangnya aku mau memberinya apa? Kerupuk? Kalau dia tidak mau, ya, sudah. Akan kubelikan yang lain kalau punya uang.
+
+Lalu kepalaku mulai menggelitik. Sepertinya terlihat membosankan, ya? Kumiringkan kepalaku.
+
+Ah! Aku punya ide.
+
+Kupotong gelang yang sudah tersambung rapi dengan pengorbanan ujung jariku itu. Kupanaskan lagi ujung-ujungnya dan kali ini aku memelintir salah satu ujungnya setengah putaran sebelum menyatukannya lagi.
+
+Ini lebih menarik.
+
+---
+
 *Let's do this.* Aku bangkit dari bangkuku dan berjalan menyusuri lorong menuju ruang komputer, di mana Pak Andrew biasanya berada di jam ini. Baru dua langkah kakiku melewati kelas sebelah, ada suara memanggil dari belakangku.
 
-"Kak Gema, belum mau pulang?" Langkahku langsung terhenti. *Anya.*
+"Kak Gema, belum mau pulang?" Langkahku langsung terhenti. *Anya*. Setidaknya aku tidak perlu mencarinya.
 
 "Belum, aku mau ke ruang komputer. Kamu sendiri? Mau latihan paduan suara?" jawabku setelah berhenti dan memutar badanku menghadapnya. 
 
@@ -42,7 +62,13 @@ Bel pulang sekolah berbunyi. Semua bersorak gembira. Aku tetap diam.
 
 Lalu kami tertawa geli berdua. 
 
-"Selamat ulang tahun, Anya. Maaf, aku tidak punya hadiah untukmu hari ini. Tapi kamu dapat doaku, semoga kamu selalu mendapatkan yang terbaik," ujarku tersenyum padanya. Dia membalas dengan senyuman yang menarik memori-memori aneh kembali ke permukaan. Ujung bibirnya, matanya, aku dipaksa mengingat sesuatu yang kupendam dalam-dalam selama tiga puluh tahun. 
+"Selamat ulang tahun, Anya. Hari ini kamu dapat doaku, semoga kamu selalu mendapatkan yang terbaik," ujarku tersenyum padanya. Dia membalas dengan senyuman yang menarik memori-memori aneh kembali ke permukaan. Ujung bibirnya, matanya, aku dipaksa mengingat sesuatu yang kupendam dalam-dalam selama tiga puluh tahun. "Ehem. Dan kamu dapat ini," lanjutku sambil mengeluarkan gelang putih itu dari sakuku.
+
+"Wah, apa ini, kak? Kamu belikan ini untukku?" Tanyanya setelah menerima gelang itu di telapak tangannya. Aku tidak tahu dia bercanda atau hanya ingin bertingkah sopan. Jelas-jelas ada bekas terbakar di tengah-tengah gelang itu.
+
+"Bukan. Itu dari tali sepatuku. Kubuatkan khusus untukmu," jawabku sekenanya.
+
+"Berarti ini adalah hadiah paling *limited edition* yang kudapat hari ini. Aku suka," katanya sebelum mengenakan gelang itu di tangannya. "Terima kasih, kak. Tolong sampaikan terima kasihku juga untuk sepatumu, ya," ucapnya dengan senyum manisnya. Diikuti dengan gelak tawa kami berdua.
 
 Ah, cantik sekali kamu, Anya. 
 
@@ -50,7 +76,17 @@ Sadar, Gem! Kamu hampir lima puluh tahun!
 
 Kalau Anya bisa membaca pikiranku pasti dia sedang melihatku menampar diriku sendiri.
 
-Tak terasa kami sudah sampai di depan ruang multimedia, ruang komputer ada di sebelahnya. Kubukakan pintu lalu menyilakan Anya untuk masuk dengan gaya pelayan Inggris. Anak-anak OSIS yang ada di dalam lab biologi melihat tingkahku dan tertawa.
+"Tapi bentuknya aneh. Memang terpelintir begini? Atau kamu sedang mengantuk saja ketika membuatnya?"
+
+"Tidak. Memang aku sengaja. Bentuk itu punya nama, Anya. *Möbius strip*, sebuah utas yang mau bagaimana pun kamu melihatnya, dia hanya punya satu sisi. Kalau kamu menelusuri pita itu, pada akhirnya kamu akan kembali ke titik yang sama."
+
+Dia melepas gelang itu dan mencoba menyisir sisinya dengan ujung jarinya. Dan benar saja, dia kembali ke titik yang sama. 
+
+"Keren..." Ujarnya takjub. "Lalu kenapa kamu memilih bentuk ini, kak? Pasti ada maksud tertentu," tanyanya dengan mata menyipit. "Aku tahu kamu tidak sesederhana itu."
+
+"Karena meskipun kamu kembali ke titik yang sama, perjalanan yang kamu lalui akan berbeda dari yang sebelumnya."
+
+Tak terasa kami sudah sampai di depan ruang multimedia, ruang komputer ada di sebelahnya. Kubukakan pintu lalu menyilakan Anya untuk masuk dengan gaya pelayan Inggris. Anak-anak paduan suara yang ada di dalam ruangan itu melihat tingkahku dan tertawa.
 
 "Silakan, nona."
 
@@ -66,7 +102,11 @@ Apa ini? Pertanyaannya aneh.
 
 Jangan bilang aku berjalan ke ruang komputer hari ini sudah mengubah masa depan. Yang benar saja. 
 
-Ah, sudahlah. Kukesampingkan pikiran itu dulu dan melangkahkan kakiku ke ruang komputer. Kuketuk pintunya dua kali dan memanggil, "Pak Andrew, ini Gema, kelas 12C. Boleh saya masuk?"
+Ah, sudahlah. Kukesampingkan pikiran itu dulu dan melangkahkan kakiku ke ruang komputer. 
+
+---
+
+Kuketuk pintunya dua kali dan memanggil, "Pak Andrew, ini Gema, kelas 12C. Boleh saya masuk?"
 
 "Masuk, Gema." jawab Pak Andrew dari dalam.
 
@@ -131,7 +171,7 @@ Tanganku berhenti mengetik di *keyboard* seperti orang gila dan kucoba *run*.
 
 *Shit!* Apa ini? Kenapa rusak. Harusnya ini berhasil.
 
-Oh! Dasar tolol, ini *Windows XP*. Kuganti `\x1b[H` dengan `SetConsoleCursorInfo(con, &ci)`. *Compile*. *Run!*
+Oh! Dasar tolol, ini *Windows XP*. Kuganti `\x1b[H` dengan `SetConsoleCursorInfo(con, home)`. *Compile*. *Run!*
 
 ```bash
                        ####*****!!!!!======
@@ -166,7 +206,7 @@ Oh! Dasar tolol, ini *Windows XP*. Kuganti `\x1b[H` dengan `SetConsoleCursorInfo
                           ::;;;;;;;;;;;;
 ```
 
-Yes. Kumpulan karakter itu bergerak mulus seperti sekawan burung di langit. Aku mengimprovisasi `donut.c` yang mungkin sekarang masih belum dipublikasi dan mengubahnya semauku.
+*Yes*! Kumpulan karakter itu bergerak mulus seperti sekawan burung di langit. Aku mengimprovisasi `donut.c` yang mungkin sekarang masih belum dipublikasi dan mengubahnya semauku. Berkat Anya tadi, aku mendapat inspirasi mendadak untuk ini.
 
 "Objek tiga dimensi bergerak ini adalah *output* dari program yang baru saja saya tulis menggunakan *C*, pak. Dari nol, *compiled* menggunakan *Dev-C++*. Objek ini mengilustrasikan *Möbius strip*, sebuah pita yang dilihat bagaimanapun, hanya memiliki satu sisi. Saya menggunakan algoritma--"
 
@@ -207,4 +247,3 @@ Aku berdiri di balkon lantai tiga sekolahku, di mana aku bisa melihat dengan jel
 *Birthday lunch, my ass.*
 
 Tak apa, Anya. Bertahanlah sebentar. Akan kuulang cerita menyedihkan ini untuk menghapus bagian buruk itu dari hidupmu.
-
