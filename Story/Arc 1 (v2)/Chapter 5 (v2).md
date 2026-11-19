@@ -8,6 +8,12 @@ title: Phantom Pain
 
 ---
 
+**Gema**
+---
+
+
+---
+
 **Kartika**
 ---
 Hangatnya *hair dryer* ini sangat nyaman dibanding dinginnya pagi yang hujan. *Pasti nanti jalanan becek, memang harus pakai mobil nanti.* Seusai mengeringkan rambut, kukenakan seragam sekolah hari ini. Putih abu-abu. Seragam favoritku. Terakhir, kuambil jam tangan di meja dan pandangan mataku jatuh pada pigura foto kecil di sebelahnya. Fotoku berdua dengan Anya ketika kelulusan SD dulu. Kami sama-sama menggunakan kaus kuning, tertawa sangat bahagia. 

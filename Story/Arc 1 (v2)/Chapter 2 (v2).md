@@ -12,15 +12,25 @@ title: Disorientasi
 
 "Gem, ayo. Ini hari Senin, nanti kamu terlambat." Ya benar, itu suara ibuku. Badanku langsung tersentak bangkit. Kupandangi wajah ibuku yang agak terkaget karena aku tiba-tiba terduduk. Setetes air menitik dari ujung mataku entah dari mana. Aku tidak bisa berkata apa-apa. 
 
-"Gem, kamu kenapa? Kenapa menangis?" tanya ibuku khawatir.
+"Gem, kamu kenapa? Kenapa menangis?" tanya ibuku khawatir. Lalu ibu melihatku dari kepala sampai kaki, kembali lagi ke kepala. Pandangannya lalu menoleh ke kasur. Terheran. Aku juga.
 
-"A-Aku..." ujarku terbata. "Aku... mungkin hanya mimpi buruk, bu."
+Aku ikut menoleh ke belakang dan melihat kasurku. Lembab dari bantal sampai kaki. 
 
-"Kamu menangis karena mimpi buruk? Ayolah, kamu sudah kelas 12. Cepat mandi dan bersiap ke sekolah." 
+"Gem..." Ibu mendekat dan meletakkan tangannya di dahiku yang ternyata bercucuran keringat. Aku melihat tanganku yang juga sama basahnya. "Gem, kamu demam. Badanmu sampai basah semua. Kamu tidak apa-apa?"
 
-Suara ibu hanya terdengar samar-samar di tengah luapan emosi yang tidak tahu aturan ini. Aku memaksakan senyuman dan mengangguk. Ibu menepuk pundakku dan pergi ke dapur. 
+"A-Aku..." ujarku terbata. Aku juga tidak tahu, bu. Yang kutahu adalah ini semua mustahil nyata. "Aku... mungkin hanya mimpi buruk, bu."
 
-Perlahan aku mulai bisa mendengar jantungku berdebar, lalu telingaku berdenging. Tiba-tiba dadaku terasa sesak dan leherku sangat panas seperti dicekik. Tanganku yang gemetar hebat berusaha menggapai leherku, mencari apa yang mencekikku. Tapi tidak ada. Lalu kesadaran itu menimpaku seperti sebuah batu raksasa. 
+"Kamu mimpi buruk sampai demam begitu?" 
+
+"Mungkin..."
+
+"Sudah sana coba mandi kalau bisa berdiri. Kalau tidak bisa, izin tidak masuk sekolah saja."
+
+Suara ibu hanya terdengar samar-samar di tengah luapan emosi yang tidak tahu aturan ini. Aku hanya bisa memaksakan senyuman dan mengangguk. Ibu menepuk pundakku dan pergi ke dapur. 
+
+Perlahan aku mulai bisa mendengar jantungku berdebar, lalu telingaku berdenging. Tiba-tiba dadaku terasa sesak dan leherku sangat panas seperti dicekik. Sinar matahari yang masuk dari jendela tiba-tiba terlihat seperti bom. Terang sekali. Di tengah dengingnya telingaku, aku bisa mendengar suara-suara yang tidak masuk akal seperti percikan kecil minyak di wajan ibu di dapur, remuknya daun-daun kering yang jatuh di halaman depan, aku bahkan seperti bisa mendengar getaran listrik dari kabel di dinding. Tanganku yang gemetar hebat berusaha menggapai leherku, mencari apa yang mencekikku. Tapi tidak ada. 
+
+Lalu kesadaran itu menimpaku seperti sebuah batu raksasa. 
 
 Aku sungguh baru saja terpenggal karena ditabrak truk, aku melihat potongan leherku sendiri tadi. Aku benar-benar mati. Lalu ini apa? Apa aku di neraka? Seperti inikah bentuk neraka? Karena aku tidak mungkin masuk surga. Tapi tidak mungkin ibuku di neraka! LALU INI APA?!
 
@@ -28,13 +38,13 @@ Oke, Gem. Tenang--
 
 Tapi ibuku--
 
-Analisa dulu, jangan panik. Kalau memang kamu baru saja mati terpenggal pasti traumanya akan mencekik keras. Oke, oke, atur napas dulu. Tarik... Hembus... Tarik... Hembus... 
+Analisa dulu, jangan panik. Kalau memang kamu baru saja mati terpenggal pasti traumanya akan mencekik keras. Ini adrenalin. Oke, oke, atur napas dulu. Tarik... Hembus... Tarik... Hembus... 
 
-Tanganku mulai berhenti gemetar, debar jantungku mereda dan cekikan itu mulai pudar. Hanya tersisa keringat dingin dari adrenalin barusan.
+Tanganku mulai berhenti gemetar, debar jantungku dan suara-suara aneh itu mereda. Cekikan itu pun mulai pudar. Hanya tersisa keringat dingin yang membuat bajuku seperti habis kehujanan.
 
 Aku turun dari kasur dan berjalan perlahan keluar kamar. Harum masakan ibuku semakin tercium. Aku berani bertaruh neraka tidak akan berbau wangi rempah seperti ini. Berarti ini bukan neraka. Hanya ada satu cara untuk memastikan, aku berjalan ke dapur.
 
-"Bu, ini tanggal berapa?" Suaraku terdengar kecil. Aku tidak merasa memiliki suara semacam ini, ini... Suara anak baru selesai puber. Lalu terlihatlah wajahku di cermin kecil, tenggorokanku langsung tersedak angin kosong.
+"Bu, ini tanggal berapa?" Suaraku terdengar aneh. Aku tidak merasa memiliki suara semacam ini, ini... Suara anak baru selesai puber. Lalu terlihatlah wajahku di cermin kecil, tenggorokanku langsung tersedak angin kosong.
 
 "Tiga belas September, Gem. Kenapa?" Ibu menjawab, tapi tidak terdengar olehku. Aku sibuk mendekati cermin, meraba pipiku, dahiku, rambutku. Wajahku kembali seperti waktu aku masih SMA. Tidak ada bekas jerawat, tidak ada bekas luka di ujung mataku waktu aku kecelakaan beberapa tahun lalu. Hampir bersih, rambutku saja masih setengah ikal.  
 
@@ -50,15 +60,15 @@ Aku turun dari kasur dan berjalan perlahan keluar kamar. Harum masakan ibuku sem
 
 "Iya, Gem, 2010. Kamu kenapa, sih? Kamu aneh sekali pagi ini. Seperti orang lupa ingatan."
 
-"Eh...," aku mengangkat tangan. "Tidak apa-apa, bu. Mungkin tidurku terlalu lelap. Aku tidak kenapa-kenapa, kok, bu. Sungguh."
+"Eh...," aku mengangkat tangan. "Tidak apa-apa, bu. Mungkin karena demam tadi, tapi sudah turun, kok. Aku tidak kenapa-kenapa, bu. Sungguh."
 
 Ini tidak mungkin terjadi. Harusnya sekarang tahun 2040!
 
-Tapi ibu sungguh-sungguh ada di sini. Dan aku ada di rumah lama milik orang tuaku. Ilusi tidak akan senyata ini, kan? Berarti satu-satunya penjelasan yang masuk akal adalah... Aku kembali ke masa lalu? Tiga puluh tahun lampau?
+Tapi ibu sungguh-sungguh ada di sini. Dan aku ada di rumah lama milik orang tuaku. Ilusi tidak akan senyata ini, kan? Berarti satu-satunya penjelasan yang masuk akal adalah... Ini ilusi sebelum mati? Iya, pasti. Tidak mungkin, kan, aku kembali ke masa lalu? Memangnya ini apa? Webnovel?
 
 "Sudah sana cepat mandi, sarapan dan berangkat ke sekolah."
 
-Kata-kata ibu seperti menampar wajahku yang masih melamun. Sialan, sekolah. 
+Kata-kata ibu seperti menampar wajahku yang masih melamun. Sialan, sekolah. Aku harus sekolah di dalam ilusi? 
 
 ---
 
@@ -70,7 +80,11 @@ Sialan! Sialan! Sialan! Baru kemarin aku terlibat negosiasi untuk mempertahankan
 
 "Hah! Kamu bahkan tidak ingat halamannya. Tiga puluh tiga."
 
-Aku membuka tasku dan mencari buku tulis dan buku paket matematika. Kubuka halaman tiga puluh tiga dan benarlah di situ, baris-baris jawaban yang harusnya terisi masih kosong melompong. 
+Aku membuka tasku dan mencari buku tulis dan buku paket matematika. Lalu tangan kananku mengambil kaca mata baca yang tidak ada di sebelah kananku. Eh? Ke mana perginya? Selalu kutaruh di sebelah kanan, kok. 
+
+Oh, tolol.
+
+Kubuka halaman tiga puluh tiga dan benarlah di situ, baris-baris jawaban yang harusnya terisi masih kosong melompong. 
 
 "Yap, belum," kutegaskan lagi ke Jonas sambil menyengir.
 
@@ -92,23 +106,21 @@ Tiba-tiba mataku menangkap sepasang sepatu hitam di anak tangga paling atas, sep
 
 "Kak Gema," sapanya sambil menyingkapkan rambut ke belakang telinganya.
 
-"Anya...," aku hanya bisa bergumam tipis. Anya masih secantik yang kuingat dulu, masih seanggun merpati putih di langit, masih sewangi bunga mawar kesukaannya dulu. Badanku menegang, bukan karena takut atau gugup, tapi karena aku mengerahkan semua tenagaku untuk tidak berlari dan memeluknya. Tanpa kusadari, Anya sudah berhenti di depanku. 
+"Anya...," aku hanya bisa bergumam tipis. Benar-benar Anya. Badanku mulai menunjukkan gejala yang sama yang kualami tadi pagi, bukan karena takut atau gugup, tapi karena aku mengerahkan semua tenagaku untuk tidak berlari dan memeluknya. Tanpa kusadari, Anya sudah berhenti di depanku. 
 
 "Kamu kenapa, Kak? Kenapa gemetar begitu? Kamu sakit?" Dia meletakkan tangannya di dahiku. Tangan yang dingin dan lembut itu terasa seperti plat besi panas. Aku refleks memegang pergelangan tangannya dan mendorongnya menjauhiku. 
 
 "Aku... Tidak apa-apa. *I'm fine, really.* Kamu sudah ditunggu anak-anak OSIS. *Bye*, Anya." Aku bergegas menaiki tangga dan menghilang dari pandangannya. 
 
-Sialan! Sialan! Sialan! Anya! Kenapa Anya?! Aku belum berhasil memahami kenapa aku bisa kembali ke tiga puluh tahun lalu! Sekarang aku harus bertemu dengan Anya lagi?! Setiap hari?! 
+Sialan! Sialan! Sialan! Anya! Kenapa Anya?! Aku bahkan tidak tahu apa ini ilusi atau kenyataan. Sekarang aku harus bertemu dengan Anya lagi?! Setiap hari?! Kalau pun ini ilusi, rasanya sangat-sangat nyata. 
 
-Di hidupku yang kemarin, kalau hidup yang sekarang ini sungguh nyata, dua bulan lagi keberadaan Anya akan mulai berubah status di dalam kepalaku. Aku tahu pasti bagaimana cerita ini akan berakhir.
-
-Tunggu, dua bulan lagi? Ibu tadi bilang sekarang tanggal berapa?
+Tunggu, ibu tadi bilang sekarang tanggal berapa?
 
 Ah, sialan. Hari ini ulang tahunnya dan aku baru saja lari seperti orang tolol.
 
 ---
 
-"Gema, kerjakan soal nomor sembilan belas!" Aku tersentak dari lamunanku. Bu Karin tiba-tiba melontarkan jebakan agar aku memperhatikan pelajaran matematikanya kembali. Terima kasih sudah menarikku dari per-Anya-an ini, bu. Kutengok soal nomor sembilan belas di buku, ternyata soal integral biasa.
+"Gema, kerjakan soal nomor sembilan belas!" Aku tersentak dari lamunanku. Bu Karin tiba-tiba melontarkan jebakan agar aku memperhatikan pelajaran matematikanya kembali. Terima kasih sudah menarikku dari per-Anya-an ini, bu. Semua omong kosong ini membuat kepalaku sakit. Lebih baik aku mengalihkan pikiranku saja. Kutengok soal nomor sembilan belas di buku, ternyata soal integral biasa. 
 
 $$\int \sin x \cos x \, dx$$
 
@@ -144,6 +156,6 @@ Bu Karin tercengang.
 
 "Ehem, Gema benar. Jadi seperti itu anak-anak..." Bu Karin melanjutkan ajarannya sembari aku kembali ke tempat dudukku. Aku tidak tahu apa lagi yang mau diajarkan dari soal sederhana ini. Tapi, ya, sudahlah. 
 
-Mataku kembali melihat ke luar jendela. Kali ini tidak lagi memikirkan Anya. Tepat sebelum kepalaku lepas dari badanku aku sedang mempertanyakan apa yang akan kulakukan kalau aku bisa mengulang kembali. Sekarang aku ada tepat di posisi itu, entah siapa di semesta ini yang sedang bercanda. Leluconnya tidak lucu. 
+Mataku kembali melihat ke luar jendela. Kali ini tidak lagi memikirkan Anya. Tepat sebelum kepalaku lepas dari badanku aku sedang mempertanyakan apa yang akan kulakukan kalau aku bisa mengulang kembali. Sekarang aku ada tepat di posisi itu, dan tidak ada gunanya aku mempertanyakan apakah ini nyata atau tidak. Yang jelas, entah siapa di semesta ini yang sedang bercanda. Leluconnya tidak lucu. 
 
 *Fine, I'll play.*

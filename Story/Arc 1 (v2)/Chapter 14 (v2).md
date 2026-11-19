@@ -14,7 +14,7 @@ title: Menembus Masa Depan
 
 "Telan dulu baru bicara, dasar aneh," omelku sebelum menyentil kecil dahinya.
 
-"Aduh! Aaaah, berisik! Biarkan aku makan sesukaku mumpung tidak ada ibuku di sekolah," gerutunya.
+"Aduh! Aaaah, berisik! Biarkan aku makan sesukaku mumpung tidak ada mamaku di sekolah," gerutunya.
 
 "Kamu tadi menanyakan apa?"
 

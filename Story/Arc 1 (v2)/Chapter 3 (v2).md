@@ -5,7 +5,6 @@ tags:
 title:
   - Möbius
 ---
-
 # Möbius
 
 ---
@@ -174,13 +173,13 @@ Tanganku berhenti mengetik di *keyboard* seperti orang gila dan kucoba *run*.
 Oh! Dasar tolol, ini *Windows XP*. Kuganti `\x1b[H` dengan `SetConsoleCursorInfo(con, home)`. *Compile*. *Run!*
 
 ```bash
-                       ####*****!!!!!======
-                   $$$####*****!!!!!======;;;;;;
-                $$$$$#####****!!!!======;;;;;;;;;::
-              $$$$$$$####****!!!!=====;;;;;;;;::::::::
-             $$$$$$$####****!!!!====;;;;;;;:::::::::::::
-            $$$$$$$####****!!!=====;;;;;;::::::::::::::~~~
-           $$@$$$$$###***!!!!====;;;;;::::::::::::~~~~~~~~~~
+                        ####*****!!!!!======
+                    $$$####*****!!!!!======;;;;;;
+                 $$$$$#####****!!!!======;;;;;;;;;::
+               $$$$$$$####****!!!!=====;;;;;;;;::::::::
+              $$$$$$$####****!!!!====;;;;;;;:::::::::::::
+             $$$$$$$####****!!!=====;;;;;;::::::::::::::~~~
+            $$@$$$$$###***!!!!====;;;;;::::::::::::~~~~~~~~~~
            @@@$$$$###***!!!=====;;;;:::::::::~~~~~~~~~~~~~~~~
           @@@@$$$###***!!!====;;;;:::::::~~~~~~~~~~~~~~~~~~~~~
          @@@@$$$$##***!!!====;;;::::~:~~~~~~~~~~~~~~~~~~~~~~~~~
@@ -206,7 +205,7 @@ Oh! Dasar tolol, ini *Windows XP*. Kuganti `\x1b[H` dengan `SetConsoleCursorInfo
                           ::;;;;;;;;;;;;
 ```
 
-*Yes*! Kumpulan karakter itu bergerak mulus seperti sekawan burung di langit. Aku mengimprovisasi `donut.c` yang mungkin sekarang masih belum dipublikasi dan mengubahnya semauku. Berkat Anya tadi, aku mendapat inspirasi mendadak untuk ini.
+*Yes*! Kumpulan karakter itu bergerak mulus seperti sekawan burung di langit. Aku mengimprovisasi `donut.c` yang mungkin sekarang penjelasannya masih belum dipublikasi dan mengubahnya semauku. Berkat Anya tadi, aku mendapat inspirasi mendadak untuk ini.
 
 "Objek tiga dimensi bergerak ini adalah *output* dari program yang baru saja saya tulis menggunakan *C*, pak. Dari nol, *compiled* menggunakan *Dev-C++*. Objek ini mengilustrasikan *Möbius strip*, sebuah pita yang dilihat bagaimanapun, hanya memiliki satu sisi. Saya menggunakan algoritma--"
 

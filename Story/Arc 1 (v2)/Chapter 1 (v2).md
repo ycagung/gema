@@ -28,7 +28,7 @@ Sangat berat rasa hatiku untuk mengubahnya. Lalu konsentrasiku terputus karena p
 
 "Sore, bos," kusapa Andrea dengan nada ringan.
 
-*"Gem! Kamu tidak tahu etika?! Telinga saya panas mendengar umpatan Pak Leo selama sepuluh menit hanya karena kamu tidak menggunakan format laporan keuangan yang dia minta! Apa-apaan ini, Gem?!"*
+*"Gem! Kamu tidak tahu etika?! Telingaku panas mendengar umpatan Pak Leo selama sepuluh menit hanya karena kamu tidak menggunakan format laporan keuangan yang dia minta! Apa-apaan ini, Gem?!"*
 
 "Tenang dulu, bos-"
 
@@ -38,17 +38,19 @@ Sangat berat rasa hatiku untuk mengubahnya. Lalu konsentrasiku terputus karena p
 
 *"Gema... Apa menurutmu aku peduli dengan konflik internal perusahaan mereka? Aku hanya peduli dengan seberapa besar Pak Leo akan membayar kita. Dan kalau kamu tidak memperbaiki laporan itu, jumlahnya akan jadi NOL!"*
 
-Omelan Andrea pun berlanjut, tak sekalipun dia mendengarkan penjelasanku bahwa aku tidak ingin memfasilitasi penipuan terhadap klienku, klien kita. Apalagi penipuan itu dilakukan oleh karyawannya sendiri. Akhirnya aku memilih untuk diam, seperti biasa.
+Omelan Andrea pun berlanjut, tak sekalipun dia mendengarkan penjelasanku bahwa aku tidak ingin memfasilitasi penipuan terhadap klienku, klien kita. Apalagi penipuan itu dilakukan oleh karyawannya sendiri. Reputasi kita Andrea. Reputasi kita. 
+
+Tapi akhirnya aku memilih untuk diam, seperti biasa.
 
 Ini bukan kali pertama hal semacam ini terjadi, dan aku yakin tidak akan jadi yang terakhir. Aku masih tidak paham jalan pikir Andrea. Tidakkah dia melihat kalau klien semacam ini tidak pernah bertahan lama? Apa yang ada di pikirannya itu hanya uang instan tidak peduli dari mana datangnya? Masih untung tidak semua klien Andrea itu semacam dengan Pak Leo dan timnya. Bisa-bisa reputasiku hancur kalau memang seperti itu. Tapi apalah dayaku.
 
 ---
 
-Hidupku di kantor adalah putaran setengah abadi di mana aku menghadapi hujan komplain dari klien, lalu menghadapi hujan komplain dari atasanku karena egonya basah kuyup dihujani komplain oleh klien. Semua itu dalam kurun waktu dua jam dan akan berulang minimal empat kali sehari, tujuh hari seminggu, tiga pu... 
+Hidupku di kantor adalah putaran setengah abadi di mana aku menghadapi hujan komplain dari klien, lalu menghadapi hujan komplain dari atasanku karena egonya basah kuyup dihujani komplain oleh klien. Semua itu dalam kurun waktu dua jam dan akan berulang minimal empat kali sehari, tujuh hari seminggu, tiga puluh ha-- 
 
 Ah, sudahlah. 
 
-Jam di dinding menunjukkan pukul sembilan malam. Rasanya sudah cukup banyak omong kosong dalam sehari yang bisa kuhadapi di kantor ini. Kubereskan meja kerjaku. Sekarang waktunya pulang dan menghadapi cecaran istriku tentang tagihan ini dan itu yang menumpuk, keinginannya yang tidak pernah terpenuhi, atau ribuan hal kecil lain yang bermuara di aku seakan-akan akulah penyebab kebobrokan dunia. Seperti itu terus sampai dia lelah dan tidur lebih dulu. Lalu seperti biasa aku akan duduk termenung di teras bersama dua batang rokok yang kubeli di perjalanan pulang, menikmati kesendirianku. 
+Jam di dinding menunjukkan pukul sembilan malam. Rasanya sudah cukup banyak omong kosong dalam sehari yang bisa kuhadapi di kantor ini. Tanganku mulai membereskan meja kerjaku. Sekarang waktunya pulang dan menghadapi babak kedua. Cecaran istriku tentang tagihan ini dan itu yang menumpuk, keinginannya yang tidak pernah terpenuhi, atau ribuan hal kecil lain yang bermuara di aku seakan-akan akulah penyebab kebobrokan dunia. Seperti itu terus sampai dia lelah dan tidur lebih dulu. Lalu seperti biasa aku akan duduk termenung di teras bersama dua batang rokok yang kubeli di perjalanan pulang, menikmati kesendirianku. 
 
 Sepertinya hanya itu yang aku punya yang betul-betul milikku. 
 
@@ -58,7 +60,7 @@ Tapi aku tidak pernah merasa menyalahkan istriku, Andrea, Pak Leo, atau siapa pu
 
 Jalanan becek sedikit membasahi sepatu dan kaus kakiku. Kurang satu kilometer lagi sampai ke stasiun metro. Udara dingin bekas hujan mulai terasa tajam menusuk kulitku, kunikmati saja. Ini jauh lebih nyaman daripada tusukan yang keluar dari mulut istriku nanti. Tapi sungguh, jika aku bisa mengulang hidupku lagi, apa yang akan kuperbaiki, ya? Dari mana aku harus memulai? Apa prioritasku? Apakah mengambil keuntungan diri sendiri atau menebus kesalahan-kesalahan yang kubuat?
 
-Pertanyaan terakhir itu membekas di benakku, membuat pandanganku kosong. *Pilihan mana yang akan kupilih?*
+Lalu muncul pertanyaan yang mengalahkan semuanya. Apakah aku memilih hidup ini, atau sebaliknya yang terjadi?
 
 Kakiku yang basah terus berjalan mengikuti ke mana arah trotoar menuju. Tanpa kusadari, trotoar itu sudah tidak ada lagi. Di bawah kakiku sekarang hanya ada aspal. Dalam sepersekian detik, cahaya terang datang dari arah kananku, suara klakson melengking tajam, lalu ada teriakan dari belakangku. Hal berikutnya yang kutahu adalah aku bisa melihat leherku sendiri, bersimbah darah. 
 
@@ -66,4 +68,4 @@ Hahaha.
 
 Katanya kepala yang terputus dari badan akan tetap hidup selama lima sampai sepuluh detik. Sepertinya aku bisa memastikan kalau itu benar-benar fakta. Kukira akan terasa mengerikan, tapi tidak juga. Tidak ada rasa sakit, tidak ada rasa kaget. Di hadapan kematian, tidak ada... rasa sama sekali. Hanya ada dingin aspal dan aliran darah dari leherku yang sudah mengenai pipi. Tak apa, bukan salah aspalnya.
 
-*Ah, sungguh akhir yang jauh lebih mengenaskan dari hidupku yang berantakan ini. Kalau aku punya leher mungkin tawaku akan terdengar keras. Tapi setidaknya aku sudah punya jawaban atas pertanyaan terakhir tadi. Aku akan...*
+*Ah, sungguh akhir yang jauh lebih mengenaskan dari hidupku yang berantakan ini. Kalau aku punya leher mungkin tawaku akan terdengar keras. Bahkan pertanyaanku pun belum terjawab. Persetan--*

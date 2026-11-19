@@ -2,9 +2,9 @@
 tags:
   - chapter
   - v2
-title: Memori dan Perkenalan
+title: Mencurigakan
 ---
-# Memori dan Perkenalan
+# Mencurigakan
 
 ---
 
@@ -18,17 +18,15 @@ Secara bersamaan aku melihat ekspresi kedua orang tuaku berubah secara perlahan.
 
 "Apa ini, Gem? Coba jelaskan maksudmu," tanggap ibu.
 
-"Hari ini aku berbicara dengan guru komputerku, Pak Andrew. Dia melihat aku punya potensi yang akan sangat bagus bila mulai dikembangkan dari sekarang. Kebetulan, wadah untuk mengembangkan itu tidak ada di sekolah. Karena Pak Andrew tidak mau menyia-nyiakan bakat yang dia lihat di dalamku, jadi aku diberi kesempatan untuk mengembangkannya di *software house*-nya. Semacam magang."
+"Hari ini aku berbicara dengan guru komputerku, Pak Andrew. Aku minta pekerjaan padanya, semacam magang. Setelah aku menunjukkan aku bisa *programming*, beliau setuju. Aku tahu ini mendadak. Aku minta maaf karena tidak mendiskusikan dengan ayah dan ibu dulu. Tapi ini penting bagiku. Lagipula, biasanya anak SMK seumuranku juga magang di kantor-kantor begitu."
 
-"Ibu tidak menangkap. Bakat apa yang kamu maksud? Dan kenapa arahnya ke perangkat lunak?"
+Aku bisa melihat mata ayah melebar. Sepertinya ada sebersit kebanggaan di sana.
 
-"Pemrograman, bu. Aku bisa pemrograman komputer." Aku bisa melihat mata ayah melebar. Sepertinya ada sebersit kebanggaan di sana.
-
-"Dari mana kamu belajar pemrograman, Gem? Kita tidak punya komputer. Kenapa kamu bisa belajar hal semacam itu." cecar ibu. Ayah meletakkan tangannya di lutut ibu.
+"Kamu bisa pemrograman, Gem? Sejak kapan?" cecar ibu. Ayah meletakkan tangannya di lutut ibu.
 
 "Biarkan dia menjelaskan dulu sampai selesai, bu."
 
-"Aku baca banyak buku, bu. Kebanyakan dari perpustakaan sekolah. Apa yang kupelajari dari buku-buku itu tadi kutunjukkan ke guruku. Lalu dia menawariku kesempatan magang itu. Aku akan bekerja di perusahaan beliau sebagai *Junior Programmer*. Akan ada gaji sedikit, tapi bukan itu yang aku cari. Ini kesempatan bagus, ibu, ayah. Kalau mau aku bisa meminta Pak Andrew untuk berbicara dengan ayah dan ibu."
+"Aku baca banyak buku, bu. Kebanyakan dari perpustakaan sekolah. Biasanya aku mempraktekkannya di komputer sekolah atau warnet. Beliau melihatku cukup mampu, jadi aku akan bekerja di perusahaan beliau sebagai *Junior Programmer*. Akan ada gaji sedikit, lumayan untuk uang saku. Ini kesempatan bagus, ibu, ayah. Kalau mau aku bisa meminta Pak Andrew untuk berbicara dengan ayah dan ibu."
 
 Ibuku menghela napas besar sebelum menjawab. "Biarkan ayah dan ibu berdiskusi, nanti kami akan panggil kalau sudah selesai. Kembalilah dulu ke kamarmu."
 
@@ -38,9 +36,9 @@ Aku beranjak pergi dari ruang tamu dan kembali ke kamarku.
 
 Tidak banyak yang bisa kulakukan di kamar sederhana ini. Hanya ada satu meja belajar, kasur, dan lemari baju. Kupandangi langit-langit putih kamarku sambil berbaring di kasur. Kuingat lagi rencanaku tadi siang di sekolah. Prioritas pertamaku adalah untuk mendapatkan sebuah komputer, lalu internet. Tanpa keduanya aku tidak akan bisa melakukan apa-apa. Pada dasarnya, aku punya tiga puluh tahun *cheat code* yang tidak akan berguna tanpa dua hal itu.
 
-Biasanya pukul sekian aku duduk melamun di teras atau bertengkar dengan istriku. Atau keduanya. Sekarang jadi terasa sepi.
+Biasanya pukul sekian aku duduk melamun di teras atau bertengkar dengan istriku. Atau keduanya. Sekarang jadi terasa sepi. Hmm? Aku merindukannya? Hahaha. Kebiasaan.
 
-"Gema."
+"Gema," panggil ibu dari luar kamar.
 
 "Iya, bu," jawabku sembari bergegas menghampiri mereka. Setelah duduk, kupandangi lagi wajah kedua orang tuaku. Mereka pun adalah salah satu korban kebodohanku di masa lalu. Hidup mereka seharusnya bisa lebih indah dan bahagia. Seharusnya mereka bisa menikmati masa tua dengan nyaman. Tapi alih-alih itu, mereka harus terlilit hutang sampai mereka tua, karena kebodohanku.
 
@@ -54,7 +52,7 @@ Tak akan kubiarkan itu terjadi lagi.
 
 "Aku mendengarkan, bu."
 
-"Satu, prioritas utama adalah sekolahmu. Jika ibu melihat nilaimu turun sedikit pun, akan ibu tarik kamu dari sana," aku mengangguk. "Dua, kamu harus sampai di rumah sebelum jam tujuh malam. Terlambat satu menit pun, konsekuensinya sama dengan kondisi pertama," aku mengangguk lagi. "Tiga, tolong jaga dirimu. Dunia kerja tidak semudah itu, Gema. Akan ada banyak konflik yang bisa membuatmu putus asa dan tidak percaya diri. Ketika hal semacam itu terjadi... Ibu minta, tolong pulanglah."
+"Satu, prioritas utama adalah sekolahmu. Memang biasanya anak SMK seumuranmu magang, tapi itu kelas sebelas. Kamu kelas dua belas, jadi kamu harus persiapan untuk ujian nasional juga. Jadi, jika ibu melihat nilaimu turun sedikit pun, akan ibu tarik kamu dari sana," aku mengangguk. "Dua, kamu harus sampai di rumah sebelum jam tujuh malam. Terlambat satu menit pun, konsekuensinya sama dengan kondisi pertama," aku mengangguk lagi. "Tiga, tolong jaga dirimu. Dunia kerja tidak semudah itu, Gema. Akan ada banyak konflik yang bisa membuatmu putus asa dan tidak percaya diri. Ketika hal semacam itu terjadi... Ibu minta, tolong pulanglah."
 
 Tenggorokanku tiba-tiba tercekat. Kukerahkan seluruh tenagaku agar air mataku tidak menetes keluar. Yang tidak bisa kutahan adalah memori yang tiba-tiba muncul ke permukaan.
 
@@ -80,17 +78,19 @@ Perjalanan ke sekolah jadi terasa jauh karena aku harus menghindari genangan-gen
 
 Tapi ini cukup nyaman, matahari terasa hangat setelah hujan subuh tadi. Entah mengapa setelah kembali ke masa lalu, aku menikmati bangun pagi ini. Mungkin kebiasaan tidurku yang berantakan dulu membuatku seperti ini. Entahlah. Tak terasa gedung sekolah sudah mulai terlihat di depan. Tiba-tiba ada suara gadis memanggilku.
 
-"Kak Gema!" Aku menoleh, melihat siapa yang memanggil. Seorang gadis berjalan cepat sambil melambaikan tangannya dari arah pintu gerbang perumahan paling elit di daerah ini. Parasnya sangat cantik, lebih mirip supermodel daripada anak SMA, rambutnya yang lembut dibiarkan berurai. 
+"Kak Gema!" Aku menoleh, melihat siapa yang memanggil. Seorang gadis berjalan cepat sambil melambaikan tangannya dari arah pintu gerbang rumah yang luar biasa besar di pinggir jalan utama kota ini. Parasnya sangat cantik, lebih mirip supermodel daripada anak SMA, rambutnya yang lembut dan lurus dibiarkan berurai. 
 
-Ah, aku ingat, ini gadis yang paling diincar satu sekolah. Namanya... Siapa, ya? Aku melambaikan saja tanganku dan menunggu dia mendekat. Ah, iya, Kartika. Kujentikkan jari dalam hati setelah melihat *badge*-nya.
+Ah, aku ingat, ini gadis yang paling diincar sekaligus paling ditakuti satu sekolah. Banyak yang bilang aneh sekali anak semacam dia sekolah di sekolahku. Biasanya mereka akan sekolah di tempat yang lebih elit lagi. Namanya... Siapa, ya? Aku melambaikan saja tanganku dengan canggung dan menunggu dia mendekat. Ah, iya, Kartika. Kujentikkan jari dalam hati setelah melihat *badge*-nya.
 
 "Kartika, kenapa jalan kaki? Bukankah biasanya kamu diantar ke sekolah?" tanyaku terheran. Walaupun jarak rumahnya hanya lima ratus meter dari sekolah, dia hampir selalu diantar oleh supirnya menggunakan mobil. Orang kaya.
 
-"Tak apa," jawabnya sambil tersenyum manis. Terlihat mencurigakan. "Aku melihatmu berjalan melewati gerbang dan kuputuskan untuk ikut berjalan bersamamu saja," jawabnya sambil mengacungkan jempol menunjuk ke gerbang perumahan di belakangnya. Sangat mencurigakan.
+"Tak apa," jawabnya sambil tersenyum manis. Terlihat mencurigakan. "Aku melihatmu berjalan melewati gerbang dan kuputuskan untuk ikut berjalan bersamamu saja," jawabnya sambil mengacungkan jempol menunjuk ke gerbang perumahan di belakangnya. "Boleh, kan?" 
+
+Sangat mencurigakan.
 
 Sebagai konteks, di kehidupan sebelumnya aku bukan anak yang paling populer satu sekolah. Wajahku cenderung biasa saja, nilaiku pun juga begitu. Tidak ada prestasi menonjol. Ah, bukan, tidak ada prestasi sama sekali. Jadi perilaku Kartika ini sangat-sangat mencurigakan. Apa yang dia mau dariku?
 
-"Kalau begitu mari berjalan," jawabku sambil menyilakan dia berjalan di sebelahku. Langkahku berlanjut, kali ini tidak sendiri.
+"Boleh saja, tapi kalau ada murid lain yang melihat. Aku akan bilang kamu memaksaku," jawabku sambil menyilakan dia berjalan di sebelahku. Dia tertawa ringan. Langkahku berlanjut, kali ini tidak sendiri.
 
 "Kak, aku ingin bertanya." 
 
@@ -102,9 +102,9 @@ Ah, iya aku masih anak SMA. Tunggu. Kenapa dia menanyakan Anya?
 
 "Pertanyaan yang sangat-sangat aneh. Apa yang membuatmu berpikir seperti itu?" tanyaku balik.
 
-"Aku punya insting yang bagus atas perasaan seseorang. Kamu memang tidak terlalu populer, tapi kulihat kamu beberapa kali mengobrol dan berjalan bersama dia. Jujur saja, poinku bukan kamu. Aku hanya melihat Anya lebih rileks waktu dia berinteraksi denganmu."
+"Aku punya insting yang bagus atas perasaan seseorang. Kamu memang tidak terlalu populer, tapi kulihat kamu beberapa kali mengobrol dan berjalan bersama dia. Jujur saja, poinku bukan kamu." Ouch. "Aku hanya melihat Anya lebih rileks waktu dia berinteraksi denganmu."
 
-Ah, aku ingat. Kartika adalah teman dekat dengan Anya, mereka satu SD dulu. Pantas saja dia peduli. Tapi ini tidak pernah terjadi di hidupku yang dulu. Aku harus berhati-hati.
+Ah, aku ingat. Kartika adalah teman dekat dengan Anya, mereka satu SD dulu. Pantas saja dia peduli. Jangan bilang dia memilih sekolah di sini karena itu juga? Tapi ini tidak pernah terjadi di hidupku yang dulu. Aku harus berhati-hati.
 
 "Lalu? Aku masih tidak menangkap korelasinya dengan pertanyaanmu," jawabku tanpa menoleh ke arahnya.
 
@@ -116,7 +116,7 @@ Seketika Kartika berhenti berjalan. Aku yang kaget juga ikut berhenti dan meliha
 
 Aku menarik napas panjang tanda menyerah. Dasar anak konglomerat, tajam sekali. "Ya, aku tahu maksudmu--"
 
-"Aku sangat peduli dengan Anya," potongnya. "Buatku dia satu-satunya teman yang melihatku apa adanya. Dan itu sangat berharga. Tapi sekarang aku tidak punya kapasitas atau posisi untuk menjaganya dari manusia-manusia tidak tahu diri yang berpotensi menghancurkan hidupnya. Jadi aku minta tolong, akan kubayar kamu bila perlu. Keluarkan dia dari lubang itu tanpa menyakitinya." 
+"Aku sangat peduli dengan Anya," potongnya. Tidak sopan. "Buatku dia satu-satunya teman yang melihatku apa adanya. Dan itu sangat berharga. Tapi sekarang aku tidak punya kapasitas atau posisi untuk menjaganya dari manusia-manusia tidak tahu diri yang berpotensi menghancurkan hidupnya. Jadi aku minta tolong, akan kubayar kamu bila perlu. Keluarkan dia dari lubang itu tanpa menyakitinya." 
 
 Aku bisa melihat mata Kartika menyala-nyala seperti kobaran api. Anak ini serius. Lalu aku mengambil selangkah mendekatinya. Kupasang raut wajah paling datar dan dingin yang kubisa. Sekarang hanya ada lima sentimeter jarak antara kami berdua. Mata Kartika tidak bergeming dan terus mendongak menatapku, bahkan saat aku sangat menginvasi *personal space*-nya.
 
@@ -126,11 +126,15 @@ Dunia seakan ikut diam melihat kami berdua bertatap-tatapan.
 
 "Karena kamu tidak berniat untuk itu."
 
-Aku tertawa. Semakin lama semakin keras. "Dasar perempuan gila," ungkapku sambil tertawa.
+Aku tertawa. Semakin lama semakin keras. "Jadi maksudmu kamu bisa melihat apa intensiku hanya karena kamu melihatku berjalan dengan Anya kemarin? *Really*? *What makes you so sure*?"
+
+"I just... Know."
+
+"Dasar perempuan gila," ungkapku masih tertawa.
 
 "Apa kamu bil--"
 
-"Oke, tapi aku butuh bantuanmu," potongku. "Kalau kamu bersedia melakukannya, kita akan membunuh dua burung dengan satu lemparan batu."
+"Oke, kita sejalan," potongku. "Tapi aku tidak mau kamu jadi orang pasif. *Wasted resource*. Kalau kamu bersedia ikut aktif, *we'll kill two birds with one stone*."
 
 Alisnya mengernyit dan kepalanya miring. 
 
